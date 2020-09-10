@@ -8,17 +8,17 @@
 # For technical reasons, this file is *NOT* reloaded automatically when you use
 # 'jekyll serve'. If you change this file, please restart the server process.
 
-# Site settings
+# ## Site settings
+# 
 # These are used to personalize your new site. If you look in the HTML files,
 # you will see them accessed via {{ site.title }}, {{ site.email }}, and so on.
-# You can create any custom variable you would like, and they will be accessible
-# in the templates via {{ site.myvariable }}.
+# You can create any custom variable you would like, and they will be 
+# accessible in the templates via {{ site.myvariable }}.
 title: Stellar Firma Transcript Archive (Extremely Unofficial)
 email: snarp@snarp.work
 author: snarp
-# description: > # this means to ignore newlines until "baseurl:"
-description: Transcripts of Stellar Firma podcast episodes.
 language: en-us
+description: Transcripts of Stellar Firma podcast episodes.
 
 # # If you're hosting your site at a Project repository on GitHub pages
 # # (http://yourusername.github.io/repository-name)
