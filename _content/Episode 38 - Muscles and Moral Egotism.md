@@ -1,0 +1,1533 @@
+---
+layout: post
+title: MUSCLES AND
+date: 
+categories: episode
+tags: 
+episode_number: '38'
+
+---
+
+# __EPISODE 38 - MUSCLES AND__ 
+
+# __MORAL EGOTISM__
+
+## Transcribed 3/9/20 via stellarscripts on tumblr
+
+#### ALEX
+
+Hi everyone, Alex here. I'd just like to take a moment to thank some of our patrons: Ashton, Andrea Paternoster, Isa, Laurie Rich, Lizzie Jacobs, Elisabeth Dixon, Robin Allez, Joe Bell, Veronica P, Sam and Phobos, Kira, Dr. Badvibes, Sara Freeman, Hannah Earnshaw, Anne Fabe, Kiro, Lauren Nabet, Hannah Jordan, Robin Stone, Nancy Crawford. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+#### TREXEL
+
+Special thanks to Marcela Garcia. May your creditors be merciful now that they have caught up with you.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+##### [door swooshes open]
+
+#### TREXEL
+
+David! [__DAVID:__ Uh--] David, David, how are you?
+
+#### DAVID [suspiciously]
+
+Trexel! Um, yup, fine?
+
+#### TREXEL
+
+David, bring it in.
+
+#### DAVID
+
+What? Uh, oh. Oh.
+
+#### TREXEL
+
+David, bring it in.
+
+##### [noises of clothing rustling, as if from a hug]
+
+#### DAVID
+
+Oh it's-- oh it's--
+
+__TREXEL__: Oh, there it is.
+
+#### DAVID
+
+Oh, it's so warm...
+
+#### TREXEL
+
+*There* it is.
+
+#### DAVID
+
+Oh--
+
+#### TREXEL
+
+That-- that, David, that's a Geistman hug.
+
+#### DAVID
+
+Uhh...
+
+#### TREXEL
+
+Not many people get a Geistman hug! Mostly they get it because I'm secretly trying to strangle them, but I can't work out where their neck is. [__DAVID:__ Um--] Come here! [__DAVID:__ No, no--] That's not your neck, that's your torso!
+
+#### IMOGEN [beep]
+
+Hug strangler murder suspect list updated. Security alerted.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+But that, David, that right there, that was a genuine Geistman hug.
+
+#### DAVID
+
+Okay?
+
+#### TREXEL
+
+How are you doing?
+
+#### DAVID [suspicious]
+
+I-- I doing fine. [*sic*]
+
+#### TREXEL
+
+How has your day been?
+
+#### DAVID
+
+Uhh, well, um, not much has happened so far--
+
+#### TREXEL
+
+No? Well perhaps I could get you some literature. Something to read?
+
+#### DAVID
+
+No, I've got-- I've got IMOGEN, there's-- that's fine--
+
+#### TREXEL
+
+Nothing you need, nothing you want there, David?
+
+#### DAVID
+
+Umm....
+
+#### IMOGEN [beep]
+
+This feels like: a trap!
+
+#### DAVID
+
+You to turn up earlier?
+
+#### TREXEL [suddenly very intense]
+
+We have fun here, David. [__DAVID:__ Uhh...] We have a lot of fun and that's a fun--
+
+#### DAVID
+
+##### [begins fake laughing]
+
+Yes.
+
+#### TREXEL
+
+--and that's a funny thing to say. That's a funny thing to say, David, a funny thing, said by a funny clone, who is my fun friend. Ah.
+
+#### DAVID [stops laughing and sighs]
+
+Yes.
+
+#### TREXEL
+
+What should we do, David? [__DAVID:__ Um--] Should we just sit and talk?
+
+#### DAVID
+
+No, I think we should--
+
+#### TREXEL
+
+Should we sit and talk about our lives [__DAVID:__ No--] and our feelings? [__DAVID:__ --I think we sort--] I've always wanted to be a dancer.
+
+#### DAVID
+
+Okay, well, look-- Oh! Here's the brief! Here's the brief that we have to do for a client meeting in twenty minutes' time. As nice as this is, we do have work to do.
+
+#### TREXEL
+
+You're right, David. You're right. I accept that.
+
+#### DAVID
+
+Good. Good.
+
+#### TREXEL
+
+I went walking with Lucy yesterday. [__DAVID:__ Right.] After the session, we, we walked along the promenade, gazing out of the viewports. People look, they judge, sure, but we didn't care.
+
+#### DAVID
+
+I noticed you're still holding, um, her.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+Right, well, just, keep, keep up the good work.
+
+#### IMOGEN [beep]
+
+Initiating.
+
+#### DAVID
+
+Um, so, the, the brief is from Yinly Strong. [__TREXEL:__ Mm-hmm.] Um, pronouns are she/her. [__TREXEL:__ Okay.] Uh, she wants a planet built to "work out and build up some rad muscles for a bodybuilding competition."
+
+#### TREXEL
+
+Ooh! Ooh, I like a rad muscle.
+
+#### DAVID
+
+She also--
+
+#### TREXEL
+
+Bicep! Tricep!
+
+#### DAVID
+
+Yeah-- she-- uh, she also--
+
+#### TREXEL
+
+Dicep.
+
+#### DAVID
+
+She also--
+
+#### TREXEL
+
+Rad muscles all.
+
+#### DAVID
+
+Right. Um, q-quadricep is also...
+
+#### TREXEL
+
+That's a good one, David! Well done.
+
+#### DAVID
+
+She also wants this planet to function as a bee sanctuary, as honey is the only sugar that she can process.
+
+#### TREXEL
+
+Ah. Some sort of very specific type of diabetes.
+
+#### IMOGEN [beep]
+
+Not how that works.
+
+#### DAVID
+
+I can only assume so. Or some sort of rad bodybuilding technique.
+
+#### TREXEL
+
+##### [gasps]
+
+Could be! Could be! Maybe your muscles are so big only the sweet, sweet honey of the bee can supplement your growth.
+
+#### DAVID
+
+##### [Trexel starts laughing loudly like it's the funniest thing he's heard but the laughing's a little too much]
+
+Yes, maybe she is body bee-uilding!  Oh... a ha... oh...
+
+#### TREXEL
+
+Excellent, David! Excellent stuff!
+
+#### DAVID
+
+Was it?
+
+#### TREXEL
+
+Excellent stuff!
+
+#### DAVID
+
+Okay. Not--
+
+#### TREXEL
+
+I like that. And I like you.
+
+#### DAVID
+
+Okay.
+
+#### IMOGEN
+
+##### [beep]
+
+Somehow worse than hostility.
+
+#### DAVID
+
+Um, so, her likes and dislikes. [__TREXEL:__ Right.] Um, she likes working out, getting ripped, and flexing.
+
+#### TREXEL
+
+You could say they're swole.
+
+#### DAVID
+
+I-- I believe she's swole.
+
+#### TREXEL
+
+Does she have "sick gains"?
+
+#### DAVID
+
+Um, I believe that her objective is to receive gains that, um, that one could describe as sick, yes.
+
+#### TREXEL
+
+Okay. Okay, this is good to know.
+
+#### DAVID
+
+She dislikes *noodle arms*--
+
+#### TREXEL
+
+Mm-kay.
+
+#### DAVID
+
+--um, and anything that has to do with feet because she has no feet and she is a no-foot supremacist.
+
+#### TREXEL
+
+Ah! She neglects leg day.
+
+#### DAVID
+
+Uh, well, she neglects foot day. Nothing here about legs.
+
+#### TREXEL
+
+It's ha-- it's hard to do squats without feet. You just overbalance! You're just on nubbins.
+
+#### DAVID
+
+Well, maybe she has a large--
+
+#### TREXEL
+
+She focuses on arms too much is what I'm saying.
+
+#### DAVID
+
+Well, we don't know that. She may--
+
+#### TREXEL
+
+Look, you've got great biceps but where's your endurance? What if there's a fire you need to escape?
+
+#### DAVID
+
+We don't know her method of perambulation.
+
+#### TREXEL
+
+She could roll.
+
+#### DAVID
+
+Or have, like, one big leg with sort of a pad.
+
+#### TREXEL
+
+Maybe a wheel.
+
+#### DAVID
+
+Maybe a wheel.
+
+#### TREXEL
+
+Is there a wheeled creature in nature?
+
+#### DAVID
+
+I don't know, you're the one who gets to go outside.
+
+#### TREXEL
+
+You'd have to create such a strange joint. You could engineer something like that with some sort of spherical omni-joint right in their thorax and then you graft a wheel around it. But what if you needed to change the tire? How would you do that?
+
+#### DAVID
+
+Yeah, maybe--
+
+#### TREXEL
+
+That would be quite the project.
+
+#### DAVID
+
+Maybe some sort of weird animal with like, this one big claw that they sort of hobble around and then you attach sort of this nut or a berry to it. And it oils itself up and you roll around, and it's all very str--
+
+#### TREXEL
+
+You sound like an idiot!
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+You sound like an increasingly tedious idiot.
+
+#### DAVID
+
+Ah, well, we dealt with the tedious idiot last time. That was Paxt Scrum.
+
+#### TREXEL
+
+Paxt Scrum will not enter our conversations again, David!
+
+#### DAVID
+
+No. No!
+
+#### TREXEL
+
+We can't go through that again!
+
+#### DAVID
+
+No, no. And I'm not going back, you're not going back, neither of us are going back!
+
+#### TREXEL
+
+##### [yells]
+
+*We're not going back!*
+
+#### DAVID
+
+No, we're dealing with Yinly Strong, the no-foot supremacist.
+
+#### TREXEL
+
+With a big wheel, okay.
+
+#### DAVID
+
+She also doesn't like dinosaurs.
+
+#### TREXEL
+
+Well, who does?
+
+#### DAVID
+
+I quite like din-- they're quite--
+
+#### TREXEL
+
+Why?!
+
+#### DAVID
+
+But they're kind of fun.
+
+#### TREXEL
+
+They're nature's failures.
+
+#### DAVID
+
+So?
+
+#### TREXEL
+
+Who likes a failure?
+
+#### IMOGEN
+
+##### [beep]
+
+Dyson, that's who.
+
+#### DAVID
+
+I quite, you know, have a certain amount of sympathy for an underdog.
+
+#### TREXEL
+
+What, with your-- You're gonna support an underdog? But they're underthings! You can barely see them. "Where's the underdog?" "Oh, I think it's under a cushion." "Well, I've already sat on it and it's died."
+
+#### DAVID
+
+Well, some of them were quite big.
+
+#### TREXEL
+
+What, like a big underdog?
+
+#### DAVID
+
+Yeah, like a--
+
+#### TREXEL
+
+That's an overdog, David. You're describing an overdog.
+
+#### DAVID
+
+Well, no, but a big dinosaur-- You said all dinosaurs are underdogs. What about a big dinosaur?
+
+#### TREXEL
+
+Look, unless a T. rex comes here and does a T-flex, I'm not gonna respect it.
+
+#### DAVID
+
+Right, well, speaking of T-flexes, let's move on with Yinly Strong. Um, if she were an animal, what would she be? A gazelle.
+
+#### TREXEL
+
+That's a very leggy and hoofy animal.
+
+#### DAVID
+
+But not a--
+
+#### TREXEL
+
+Footy animal! Perhaps-- actually, perhaps it's not that there's a complete absence of any end to the leg, it's that she's a hoofer and not a footer.
+
+#### DAVID
+
+Possibly. We don't know.
+
+#### TREXEL
+
+We don't know. But we'll learn together, David. Hold my hand.
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+Through the rest of this conversation--
+
+#### DAVID
+
+No, I'm not-- no, I'm not going to--
+
+#### TREXEL
+
+--hold my hand. I'm reaching my hand out in friendship to you, David.
+
+#### DAVID
+
+No, just-- I-I need to hold-- I need to hold the brief.
+
+#### TREXEL
+
+Hold my hand.
+
+#### DAVID
+
+Ok-- Fine.
+
+##### [disgusting squelch as they hold hands]
+
+#### TREXEL
+
+##### [David exhales]
+
+##### [sticky noise as they let go]
+
+There it is.  That's a bit sweaty. Let's just let go. That was a nice thought, David, but it's a bit sweaty so...
+
+#### DAVID
+
+Well... you know. Um, what is her greatest strength? Her big old muscles.
+
+#### TREXEL
+
+##### [chuckles]
+
+Well, of course!
+
+#### DAVID
+
+What is her greatest weakness? She has none.
+
+#### TREXEL
+
+Oh, that's a bit much.
+
+#### DAVID
+
+Mm, I'd beg to differ... Yinly Strong.
+
+#### TREXEL
+
+No weakness? Yinly Strong, no weakness?
+
+#### DAVID
+
+I th-- I think the muscley lady doth protest *too* much!
+
+#### TREXEL
+
+You can't flex your way out of this one, Yinly.
+
+#### DAVID
+
+Exactly.
+
+#### TREXEL
+
+So David, this brings me to lesson nine of the Trexel Geistman Ten Steps to Sales Domination!
+
+##### [cheerful jingle]
+
+#### DAVID
+
+We're almost there.
+
+#### TREXEL
+
+It's a fun one.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Schmoozing.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+Or, as it's better known--
+
+#### DAVID
+
+Emotional abuse.
+
+#### TREXEL
+
+No, no, no. As it's better known--
+
+#### DAVID
+
+Crying.
+
+#### TREXEL
+
+No, no David, it's--
+
+#### DAVID
+
+Beating the sticks.
+
+#### TREXEL
+
+No-- Although that-- No, no, that's not it, David. No, it's... client entertainment.
+
+#### DAVID
+
+Right. Oh, okay.
+
+#### TREXEL
+
+Taking them out. Making them feel good about themselves.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Making them your friend. And, between you and me, David... bribery.
+
+#### DAVID
+
+Okay! I s--
+
+#### TREXEL
+
+But a nice bribery. We're not, we're not trying to find out something secret and blackmail them with it. We're not trying to use this against them. It's just good, old-fashioned palm greasing. You've got such a greasy palm, you try and shake someone's hand, it just slips away. Oh, you've poked each other in the chest. That's a bit embarrassing. But everybody's got more money than they had before so everyone's happy.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+You see?
+
+#### DAVID
+
+As somebody who is basically permanently greasy, I don't really understand.
+
+#### TREXEL
+
+You'll get it straight away. You'll-- you're a natural palm greaser. Okay, imagine this. A client has come to you.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+And they're saying, "I think I'm gonna spend a lot of money on a big old planet for you." In this particular instance, it's a planet to work out on and build up some rad muscles for a bodybuilding competition. This person is intensely rich. Maybe they've made all their money *from* bodybuilding. Maybe they made their money elsewhere and then found a hollowness inside that they had to fill with bodybuilding. Whatever the reason, David, they're pretty swole and they want you to know about it.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+You're gonna have to get on their good side, because they could go anywhere, David. I mean, obviously they couldn't go anywhere because Stellar Firma is the only company in the known universe that has our kind of terraforming technology.
+
+#### DAVID
+
+It's our USP.
+
+#### TREXEL
+
+##### [sound of large and threatening gun unfolding, low tone beeping]
+
+But they might decide that perhaps this is a bad way to spend money.  Which I am not, I am not endorsing as a view.
+
+#### DAVID
+
+No. No.
+
+#### TREXEL
+
+The spending of more money on, on large planets that often explode is, is a perfectly--
+
+#### DAVID
+
+Very good. Very good use.
+
+#### TREXEL
+
+##### [beeping stops, gun disassembles and retracts]
+
+--reasonable way to spend your money.  Yes, okay. [__DAVID:__ Right.] So, to make sure that you really close the deal, we need to show 'em a good time.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Take them out on the town. Stellar Firma has a leisure deck or two.
+
+#### IMOGEN
+
+##### [beep]
+
+You are banned from the leisure deck.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+Maybe we'll go to the casino. Gamble our credits. Oh, blow on your dice? I will.
+
+#### IMOGEN
+
+##### [beep]
+
+Also from the casino.
+
+#### DAVID
+
+Yeah, okay, that, that's all fine, um, except that I cannot go to any of those places.
+
+#### TREXEL
+
+##### [stammers]
+
+That's a good point. That's a good point, David. How are you supposed to properly schmooze a client--  You can bribe them, sure. I could just give you a wad of, a wad of credits to, to give to them but that's, that's not art, that's just sort of a brute force approach.
+
+#### DAVID
+
+It's a bit crass, yeah.
+
+#### TREXEL
+
+It's-- it's a bit crass! And I'm not crass!
+
+#### IMOGEN
+
+##### [beep]
+
+You are beyond crass.
+
+#### TREXEL
+
+But how are you supposed to take them out and show them a good time when you can't really leave the premises.
+
+#### DAVID
+
+Well, the client room is quite big and echoing. What if we brought the good time *in*?
+
+#### TREXEL
+
+We could bring the good times to them. A portable casino just for you. Yinly, Yinly, going to a place where things already are, that's boring. That's a thing of the past. [__DAVID:__ Okay.] That doesn't use your big, strong arms. [__DAVID:__ Mm.] So why don't you reach over here and drag this big box, 'cause guess what's inside, Yinly.
+
+#### DAVID
+
+A present!
+
+#### TREXEL
+
+A present. But what is the present?
+
+#### DAVID
+
+Uh, a gazelle!
+
+#### TREXEL
+
+##### [yells]
+
+No, no David, it's not a gazelle. That would be sheer bribery. You know what, there could be a gazelle in a box. Let's have that in the back pocket because, at one point, I might just want to give them a gazelle. But no, what's in the box, a fold-out, portable, pop-up casino. Press a button,  *kaboom*! There's a casino there! [__DAVID:__ Eugh.] There's croupiers! There's dancing people! There's a big wheel that you spin and if you get the number right everybody cheers and says, "Yay!"
+
+#### DAVID
+
+##### [sucks air between his teeth]
+
+Okay. Okay. Right. So, so that's great. Um, we kind of just have to mobilise that sort of work force in the next...  8 or so minutes so--
+
+#### TREXEL
+
+That's gonna be completely impossible, David. [__DAVID:__ Oh.] So what we need to do is employ a previous lesson: lying.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+We're gonna tell them that's what's gonna happen, get them really excited, and then say, "Oh, you just have to sign on the dotted line there," and then once they've done that, kabam! The veil of tears.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Do you know what the "veil of tears" is?
+
+#### DAVID
+
+Um...
+
+#### TREXEL
+
+It's a Geistman move.
+
+#### DAVID
+
+Well, from the "kabam" I assumed you just fired them into space again.
+
+#### TREXEL
+
+No, no, no, because then they can't be a customer. The "kabam" is a metaphorical kabam.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+I promised you things. [__DAVID:__ Okay.] I said we were gonna do some fun things. You signed on the dotted line. [__DAVID:__ Mm-hmm.] I turn around, walk out the room and you're like, "Woah, woah, wait wait. Wait, didn't you-- didn't you promise this? Didn't you promise that?" And I turn around and say, "Well, you should have read the fine print," and then I put on sunglasses inside and walk out.
+
+#### DAVID
+
+Ugh.
+
+#### IMOGEN
+
+##### [beep]
+
+Berk detected. Security alerted.
+
+#### DAVID
+
+I feel a bit bad now.
+
+#### TREXEL
+
+Oh.
+
+#### DAVID
+
+Is that a bit mean?
+
+#### TREXEL
+
+Is it, is it-- that is a bit mean. And, if I'm honest David, I-- I've been feeling a bit worse when I've been mean. [__DAVID:__ Really?] And I don't know what that is! Maybe I'm ill. Am I dying?
+
+#### IMOGEN
+
+##### [beep]
+
+In a way, yes.
+
+#### DAVID
+
+Maybe you should just, just stick with that for a bit. Maybe think about it for a bit. Just live with it and see how you-- see how, see how it feels.
+
+#### TREXEL
+
+I feel bad when I do bad things.
+
+#### DAVID
+
+Mm-hmm.
+
+#### TREXEL
+
+What could that mean?
+
+#### DAVID
+
+What could that mean?
+
+#### TREXEL
+
+##### [talking through his thought process]
+
+Okay, I'm feeling bad... I've done a bad thing. [__DAVID:__ Have you-- have you--] Which has made me feel bad. I'm really struggling with this.
+
+#### DAVID
+
+Have you done a good thing?
+
+#### TREXEL
+
+I occasionally do a good thing.
+
+#### DAVID
+
+How does that make you feel?
+
+#### TREXEL
+
+Well, you know, kind of, um, sort of like, uh, like I've been hugged but inside my feelings.
+
+#### DAVID
+
+And you would call that feeling-- if you were to give that feeling sort of a, a value...
+
+#### TREXEL
+
+It would be a, a valuable feeling that I, I liked. [__DAVID:__ 'Kay.] I'd give it, I'd give it a 10.
+
+#### DAVID
+
+Ok-- A 10 out of?
+
+#### TREXEL
+
+I'd say 10.
+
+#### DAVID
+
+Okay, 10 out of 10 like--
+
+#### TREXEL
+
+I really like feeling that way.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+And that bad feeling's a-- it's a 1 or a 2.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Maybe a 3 if I'm being vindictive.
+
+#### DAVID
+
+Okay, well, what about you do the things that make you a 10 more than you do the things that you make a 3?
+
+#### TREXEL
+
+In a selfish bid to feel good all the time just for myself?
+
+#### DAVID
+
+I mean, it's a start.
+
+#### TREXEL
+
+I could do that. I'll selfishly feel good by being nice. Ha ha! Gotcha you, you idiot!
+
+#### IMOGEN
+
+##### [beep]
+
+Moral egotism detected. Metaphysics seminar scheduled.
+
+#### DAVID
+
+Okay. Th-that works. Just keep doing 10s.
+
+#### TREXEL
+
+10s for Trexel!
+
+#### DAVID
+
+10s for Trexel. Trexel feels 10 like he likes the thing that is a 10.
+
+#### TREXEL
+
+Hey, you're doing a good job.
+
+#### DAVID
+
+Thank you.
+
+#### TREXEL
+
+Yes! Gotcha.
+
+#### DAVID
+
+##### [playing along]
+
+##### [Trexel chuckles]
+
+Ooooh, I've been rused!  You rascal!
+
+#### TREXEL
+
+##### [pause]
+
+I'm a rascally fool! I'm like a raccoon except I've not eaten your garbage.  Although... got any garbage?
+
+#### DAVID
+
+##### [Trexel smacks his lips]
+
+##### [bin clanks]
+
+Um...  I mean I-- I suppose I-- I do have this bin  that's been here for the last--
+
+#### TREXEL
+
+Could I-- could I just rootle around in that? Would that be okay?
+
+#### DAVID
+
+I mean, if you, if-- if you want?
+
+#### TREXEL
+
+##### [stutters]
+
+I kind of do.
+
+#### DAVID
+
+Okay, well, there you go.
+
+#### TREXEL
+
+##### [papers rustling]
+
+##### [pulls out paper]
+
+Okay. What have we got in here? We've got a lot of leftover glitter glue from Lucy. We've got straps of paper with--  Is this poetry?
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+##### [stammers]
+
+What's this poe--
+
+"I wander lonely as a clone.
+
+All on my lonesome, lonesome own.
+
+I have no one to see or speak with.
+
+I had a glove. I like to eat it."
+
+This is terrible, David!
+
+#### DAVID
+
+Well, it's a work-in-progress! That's why it's in the bin! I don't keep my best poetry in the bin!
+
+#### TREXEL
+
+"I look out of the starport at the darkness outside,
+
+but there is a feeling, a feeling inside."
+
+That's a bit of a weak rhyme, David.
+
+#### DAVID
+
+Okay, well, you know--
+
+#### TREXEL
+
+"But there's one person, the only one I've ever known.
+
+Trexel, a friend of a clone."
+
+#### IMOGEN
+
+##### [beep]
+
+Yikes.
+
+#### TREXEL
+
+Well, it's bad poetry, David, but it's, it's quite sweet.
+
+#### DAVID
+
+Yeah, well, quite frankly I've moved on from rhyming couplets and I'm doing more of, sort of a, a freestyle beat thing.
+
+#### TREXEL
+
+Oh, have you got some of that? I'd love to hear it, David.
+
+#### DAVID [crosstalk]
+
+No. No. I don't. I don't-- No, I don't have any. I don't--
+
+#### TREXEL [crosstalk]
+
+##### [lays down a beat including snapping and scat singing]
+
+No no. No, David, let's do it. Come on.
+
+#### DAVID
+
+Darkness.
+
+My feelings
+
+they're hurt now.
+
+I'm thinking
+
+I don't know what!
+
+I don't know where!
+
+Where is my place
+
+in this crazy mixed up station?
+
+Is it with Trexel?
+
+Is it with IMOGEN?
+
+Who are the Board?
+
+Who is Hartro?
+
+There are her feet.
+
+Why are her feet?
+
+Keep your feet
+
+to yourself.
+
+Leave me alone!
+
+Ah-- no, I'm done. No, I can't go there.
+
+#### TREXEL [snaps fingers]
+
+I'm applauding. I'm doing jazz applause, David.
+
+#### DAVID
+
+Okay. Right, well... thank-- thank you, I suppose.
+
+#### TREXEL
+
+Keep working on that. That's some solid stuff.
+
+#### IMOGEN
+
+##### [beep]
+
+Further beat poetry will be met with violent reprisals.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+You know what? I know you're not allowed out but the Astral Bar, as much as I hate to admit it, they have a pretty good jazz night.
+
+#### DAVID
+
+Well, I can't go to that.
+
+#### TREXEL
+
+But I could record you and I could... play it over the speakers there. And I could record the crowd's reaction and bring it to you. In a small way, that could... give you some sort of connection to the outside world.
+
+#### DAVID
+
+Okay, that's actually very... thoughtful.
+
+#### TREXEL
+
+That's a 10 for Trexel! Num num num num num. Num num num num num. Mmm!
+
+#### DAVID
+
+That's a 10 for Trexel. The system works. That's... actually very nice. Thank you.
+
+#### TREXEL
+
+It's okay.
+
+#### DAVID
+
+Um... but we do have to deal with Yinly Strong.
+
+#### TREXEL
+
+Who?
+
+#### DAVID
+
+Yinly Stro-- the client.
+
+#### TREXEL
+
+##### [laughs]
+
+##### [grows pensive]
+
+Oh! My Board! I actually, genuinely forgotten about them. This, this new rush of trying to do nice things, even though it's in a selfish way, it's--  it's, it's bedazzled my sales brain.  I almost feel like maybe it...
+
+#### DAVID
+
+Kabam! Kabam!
+
+#### TREXEL
+
+Maybe it's affecting my sales brain.
+
+#### DAVID
+
+Kabam!
+
+#### TREXEL
+
+What?
+
+#### DAVID
+
+Do a kabam!
+
+#### TREXEL
+
+A kabam? What, what kind of kabam?
+
+#### DAVID
+
+No, the kabam. You said "the kabam". "The veil of tears."
+
+#### TREXEL
+
+I-I don't know if I can. That would make me feel a 3 or maybe even a 1.
+
+#### DAVID
+
+Okay, in which case, how 'bout *you* take Yinly out for a nice evening.
+
+#### TREXEL
+
+Yes, I suppose I could. But-- but then how do I, how do I leverage that into, into a sales situation, David, if I--
+
+#### DAVID
+
+Well, no, keep do-- No. No, no.
+
+#### TREXEL
+
+--if I've lost the power to be a horrible, horrible ass--
+
+#### DAVID
+
+No, no, this is fine!
+
+#### TREXEL
+
+--then maybe I can't do sales anymore!
+
+#### DAVID
+
+No no. What i-- No. No, it's fine. What if you got them to sign on the dotted line, right?
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+And instead of "veils of tears"-ing them, you invited them to a "veil of fun"?
+
+#### TREXEL
+
+A veil of fun?
+
+#### DAVID
+
+##### [whispers]
+
+Kabam!  *Veil of fun*.
+
+#### TREXEL
+
+Oh, kabam! Here's an ice cream. Kabam! It's a card signed by your loved ones.
+
+#### DAVID
+
+Kabam! Come to the Astral Bar with me. They have a very good jazz night.
+
+#### TREXEL
+
+Kabam! I've got David's beat poetry. It's not going down that well, but people don't want to look like they don't get it, so they're applauding anyway.
+
+#### DAVID
+
+Kabam! Let's maybe wait for it to actually happen before we start judging it before it's been recorded.
+
+#### TREXEL
+
+Kabam! I've seen a fair bit of beat poetry so far and it's never gone down well.
+
+#### DAVID
+
+Kabam! Well, maybe this will be different! Maybe I'll be a hidden talent.
+
+#### TREXEL
+
+It's possible, David, and I'm not going to prejudge.
+
+#### DAVID
+
+Thank you.
+
+#### TREXEL
+
+##### [whispers]
+
+*10 for Trexel*.
+
+#### DAVID
+
+System's still working. Anyway, right. So, what is the plan for Yinly?
+
+#### TREXEL
+
+Okay. The key here is we're going to go in there, we're going to be nice, we're going to be kind, we're going to promise a lot of schmoozing, and I am afterwards going to deliver on that.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+I'm going to take them to a casino. I'm going to take them to a bar. Maybe we'll listen to some of your beat poetry.
+
+#### DAVID
+
+Well, I haven't recorded any yet, so probably not now? I mean, it takes a while. I really need to get into the--
+
+#### TREXEL
+
+Okay, David! We'll do something else supportive to you and your endeavors. [__DAVID:__ Okay.] But the point is we will deliver on that, and through that method we will get them to sign on the dotted line.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+But the thing is, David, there is one key thing we have forgotten. They dislike noodle arms. Now, Trexel... Trexel's hench. Trexel has no complaints in the swole arms department.
+
+#### DAVID
+
+Uh-huh.
+
+#### IMOGEN
+
+##### [beep]
+
+By what possible metric?
+
+#### TREXEL
+
+##### [sighs]
+
+But David, you're very, you're very noodley. You're very specifically noodley. Clones are designed that way. You've got soft bones so you don't break as easily when we, you know, chuck you down things. So, you need to just *really* hide all of your--how do I put this?--body.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Stand behind me at all times [__DAVID:__ Well--] and just pop your head out.
+
+#### DAVID
+
+##### [fabric rustles as David pulls his arms in]
+
+Wait, no, tell you what. Say what, I'll just, I'll just take-- get my onesie and just pull the arm in and then--
+
+#### TREXEL
+
+Ooh, yep.
+
+#### DAVID
+
+--just pull the other arm in and then here I go!
+
+#### TREXEL
+
+##### [struggling]
+
+##### [loud knocks begin]
+
+Oh, you know what? They don't, they don't like feet. So, why don't we both take our legs[__DAVID:__ Okay.]  out of the onesie holes, [__DAVID:__ Yep.] just tie those up, [__DAVID:__ Mm-hmm.]  and we're just gonna sort of wobble in like some weird, unlockdownable egg.
+
+#### DAVID
+
+Yeah, okay. Right. Sure.
+
+#### TREXEL
+
+##### [struggling]
+
+Okay. Alright. Are you ready? Are you ready, David?
+
+#### DAVID
+
+##### [grunts]
+
+Yep.  Yep. Okay.
+
+#### TREXEL
+
+Okay, it's a bit hard to move but I, I think we can manage this, David.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+I think we can manage this.
+
+#### DAVID
+
+Okay. And we'll hop!
+
+#### TREXEL
+
+##### [large door opens, sounds of Yinly working out] [From meeting room]
+
+##### [struggling to move into the room]
+
+Ready? Okay!  Give us a minute, Yinly.  Ah, David, just fall forward and drag with your arms.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+##### [grunts]
+
+We're coming, Yinly! Don't you worry!
+
+##### [David grunting as he moves across the floor]
+
+##### [show theme starts]
+
+#### TIM
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Katie Seaton with executive producer Alexander J Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, Trexel Geistman was played by Tim Meredith. This episode was edited by Maddy Searle and Alexander J Newall, with music by Samuel DF Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord server, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook or email us via mail@rustyquill.com. May the Board preserve and keep you.

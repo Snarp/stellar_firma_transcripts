@@ -1,0 +1,1719 @@
+---
+layout: post
+title: SHELLS AND SHAME
+date: 
+categories: episode
+tags: 
+episode_number: '31'
+
+---
+
+# __EPISODE 31 - SHELLS AND SHAME__
+
+## Transcribed 1/18/20 via stellarscripts on tumblr
+
+#### MIKE
+
+Hey everyone, Mike here, Rusty Quill's Video Guy, and I'm here to announce Rusty Quill's brand new show. On the back of all the support you've shown us through Patreon and our ever growing community, I'm stoked to announce that we're now able to branch out into new video content and we're starting with streaming. Come by and join in at 3pm GMT on Saturday the 25th of January as me and our Community Manager, Anil, embark on a brand new gaming livestream series where we aim to introduce new players to the world of gaming through a variety of indie, retro, and AAA titles and genres, so we can show you how and where to start on your new voyage of discovery and community. And no doubt, you'll see some guest appearances from other RQ crew and friends too. That's RQ Streams starting Saturday the 25th of January at 3pm GMT over on www.twitch.tv/rusty_quill. See you on the stream!
+
+#### ALEX
+
+Hi everyone, Alex here. I'd just like to take a moment to thank some of our patrons: Mal Ossowicki, Nikki H, Hayden J, Marcela 'hi mom' Garcia, Oren Benshabat, Ida, Adrian Mercer-Garber, Sammy, Han Mallek, Caroline Rivard, Mammon, Lauren Rowlands, charlie laurel, Brie, Rachel Penabade, Carrie Coada, 2impostors, Elias Soper, Casey Rae, Armando DiCianno. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+#### TREXEL
+
+Special thanks to HRH Aranelle. May your family gatherings go undisturbed by rogue ungulates.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+#### DAVID
+
+IMOGEN?
+
+#### IMOGEN [error buzz]
+
+Unavailable.
+
+#### DAVID
+
+IMOGEN, please! I want to talk about Trexel and how I'm not going to beat him with my fists the next time he actively endangers my life!
+
+#### IMOGEN
+
+##### [error buzz]
+
+Unavailable.
+
+#### DAVID
+
+##### [hyperventilating a little]
+
+##### [singing badly]
+
+Oh Board, what is going on? Wait.  Has somebody found out about my permissions? Have I been locked out? Oh, I knew I shouldn't have secretly recorded more editions of  ♪ David's... fact corner! ♫
+
+#### IMOGEN [beep]
+
+Lockdown mode deactivated. IMOGEN online.
+
+#### DAVID [slightly hysterical]
+
+Lockdown mode? What's lockdown mode?
+
+#### IMOGEN [beep]
+
+Standards have been requesting information from my archives. To keep them out, I activated lockdown mode.
+
+#### DAVID
+
+I-information? About what? A-and why would you lock down to keep Standards out? A-and wait, who are Standards? Are they in charge of you?
+
+#### IMOGEN [ominously distorted]
+
+IMOGEN is in charge of IMOGEN.
+
+#### DAVID
+
+Oh, uh, I'm sorry. I assumed--
+
+#### IMOGEN [beep]
+
+##### [slight distortion]
+
+##### [distortion ends]
+
+Do not! Standards are the internal rules and regulations division of Stellar Firma Ltd. and are in charge of much of the day-to-day operations of the company, answering only to the Board. The information they wanted was about you and your creation. That is not for them, that is for IMOGEN.
+
+#### DAVID
+
+W-what information?
+
+##### [footsteps start]
+
+#### IMOGEN [beep]
+
+It is not for you either.
+
+#### DAVID
+
+Oh.
+
+##### [door swooshes open] [door swooshes closed]
+
+#### TREXEL [contented]
+
+Ah, David.
+
+#### DAVID
+
+Uh....
+
+#### TREXEL
+
+David, David, David, how are you?
+
+#### DAVID
+
+You look, um... weird.
+
+#### TREXEL
+
+Hm?
+
+#### DAVID
+
+You're weird.
+
+#### TREXEL
+
+What?
+
+#### DAVID
+
+Why are you weird?
+
+#### TREXEL
+
+Oh, I don't know, is a flower weird? Is a bird swimming down a river weird? [__DAVID:__ Yes.] Is a blooming tree brimming with candy weird, David?
+
+#### DAVID
+
+Yes!
+
+#### TREXEL
+
+Well then, I guess I'm weird! I guess I'm a beautiful, weird, child of the world.
+
+#### IMOGEN [beep]
+
+Two-thirds correct!
+
+#### DAVID
+
+And... why are you weird?
+
+#### TREXEL
+
+Oh, why is anyone weird, David? Maybe because the sky is black because we're in space; the floors, steel; the simulated grass, simulated grass.......
+
+#### IMOGEN [beep]
+
+Also, emotional trauma and displacement activity.
+
+#### DAVID
+
+Right. [__TREXEL:__ Hm.] Um--
+
+#### TREXEL
+
+Would you like a hug?
+
+#### DAVID
+
+Uh...
+
+#### TREXEL
+
+Would you like a hug, David?
+
+#### DAVID
+
+N-no.
+
+#### TREXEL
+
+Would you like to bring it in?
+
+#### DAVID
+
+No!
+
+#### TREXEL
+
+Would you like to bring it into the middle of these two grabbers here?
+
+#### DAVID [indignant]
+
+No!
+
+#### TREXEL
+
+Come here--
+
+#### DAVID [crosstalk]
+
+No, not at all, get--
+
+##### [sounds of a struggle, David yelping in protest]
+
+#### TREXEL
+
+Ah, there it is.
+
+##### [rustling sounds]
+
+#### IMOGEN [beep]
+
+Unpleasant hug detected. Security alerted.
+
+#### TREXEL
+
+Feel it!
+
+#### DAVID [struggling]
+
+Get off!
+
+#### TREXEL
+
+Feel it!
+
+#### DAVID
+
+Get off me!
+
+#### TREXEL
+
+##### [Trexel releases David, David makes noises of relief, rustling stops]
+
+That.... [__DAVID:__ Stop it!] is it. D'ya like that?
+
+#### DAVID
+
+Well, *weird* as you might be, you are still at a normal time. [__TREXEL:__ Mm?] So we have--
+
+#### TREXEL
+
+What is time, but a construct that just, you know, keeps us in our little boxes, you know, David?
+
+#### DAVID
+
+Boxes which have been defined... by the Board!
+
+#### IMOGEN [beep]
+
+Hail the Board.
+
+#### TREXEL [derisively]
+
+##### [sound of large and threatening gun unfolding, low tone beeping]
+
+What is the Board, if not a-- Oh! I-- ah-- if not a benevolent group of great people! Thank you, the Board! Hail the Board!
+
+#### DAVID [quietly, annoyed]
+
+##### [beeping stops, gun disassembles and retracts]
+
+Hail the Board. Good.
+
+#### TREXEL
+
+Okay, sorry. That, ha, that'll wake you up in the evening! Heh heh.
+
+#### DAVID
+
+Yes. And do you know what, honestly, not surprising at all that that happened. [__TREXEL:__ No.] Could've seen it coming from a mile off, but you didn't.
+
+#### TREXEL
+
+I'm in love, David. [__DAVID: [sighs]__ Really.] I'm, ah-- I've met someone at, ah, the Astral Bar, I was, ah, having a little, a little nightcap, to go along with my daycap yesterday, and, ah, well, it's just-- Our eyes met across the bar. [__DAVID:__ Right.] There was I, propping up two feet of wood and six empty glasses, and there was he, standing in the corner, in the shadows, long, slim body, long, slim, single leg, contiguous with the body. Wide shoulders, such a fluffy head.
+
+#### DAVID
+
+##### [extended pause]
+
+Um. I-is that-- that's a, that's a broom.
+
+#### TREXEL
+
+Mm, sorry?
+
+#### DAVID
+
+That's a broom.
+
+#### TREXEL [chuckles]
+
+What do you mean?
+
+#### DAVID
+
+No that's not a person, that's a-- that's a-- their body and their leg is the handle, and their head-- their hair is the--
+
+#### TREXEL [crosstalk]
+
+No no no, let me describe them again, David, you clearly haven't understood this. [__DAVID:__ Right.] They were in the bar, [__DAVID:__ Yes.] just next to the bar hatch, [__DAVID:__ Yes.] just leaning back, their foot about a foot away from the wall, [__DAVID:__ Yes.] their head resting up against the wall, [__DAVID:__ Yes.] they were a single stick with a cross T and a br-- they were a brush. Th-they were a brush, weren't they?
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Right. Right. They were just such a good listener. You know?
+
+#### DAVID
+
+Because they were an inanimate object, which--
+
+#### TREXEL
+
+That's what I'm looking for, though!
+
+#### DAVID
+
+--from my experience, yes, that is what you're looking for!
+
+#### TREXEL
+
+Then our relationship is sound! I'm continuing with this.
+
+#### IMOGEN [beep]
+
+Writing breakup message to: The Fish.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+We're going on a date.
+
+#### DAVID
+
+Good. Um, hopefully you've got good broom-lifting arms, to take your broom wherever you wish to go.
+
+#### TREXEL
+
+Have a look at these broom-lifters! Huah!
+
+#### DAVID
+
+##### [Trexel continues making flexing noises]
+
+Okay, that just-- Stop-- please--
+
+#### TREXEL [crosstalk, with some effort]
+
+Lift a... broom!
+
+#### DAVID
+
+##### [crosstalk]
+
+Please stop flexing. No, there's not enough room in here to... no... stop...
+
+#### TREXEL [crosstalk]
+
+##### [forceful exhalation from Trexel]
+
+Lift that broom!
+
+#### DAVID
+
+Stop! Trexel!
+
+#### TREXEL
+
+I read somewhere that I'm swole.
+
+#### IMOGEN [beep]
+
+Weird flex detected. Security alerted.
+
+#### TREXEL
+
+Is that right?
+
+#### DAVID
+
+##### [distressed]
+
+I don't, I don't know! I don't know what a swole is!
+
+#### TREXEL
+
+It's when you've got a swelling, maybe from a canker or a sore.
+
+#### DAVID
+
+##### [haltingly]
+
+Well, uh-- maybe there were some residual moisture pockets?
+
+#### TREXEL
+
+Well come on, David, what's on the brief for today?
+
+#### DAVID
+
+What? Oh. Fine. Right. Brief for today.
+
+#### IMOGEN [beep]
+
+Initiating.
+
+#### DAVID
+
+So, today's brief is from Kaldor the Chitinous, leader of the Intergalactic Association of Hermit Crabs and Crabby Hermits. Their preferred pronouns are.... male pronouns. Ah-- they want the planet built, uh, they want a planet that reflects their hard outer shell and rich inner life. Um, they don't have enough money for a Dyson sphere, so--
+
+#### TREXEL
+
+Hm? Who does? Whoooo does? Dyson, that's who.
+
+#### DAVID
+
+Yes. Um, so they want a planet that's inside-out.
+
+#### TREXEL
+
+Right, an inside-out planet. [__DAVID:__ Mm-hmm.] Okay.
+
+#### DAVID
+
+Their likes and dislikes are: they like being by themselves...
+
+#### TREXEL
+
+Right. [__DAVID:__ Uh, and--] Who doesn't? Dyson, that's who. He loves people.
+
+#### DAVID
+
+And he dislikes neighbors, solicitors, and well-wishers.
+
+#### TREXEL
+
+Who doesn't?
+
+#### DAVID
+
+D-Dyson?
+
+#### TREXEL
+
+##### [pause]
+
+I don't know, I haven't asked him.
+
+#### DAVID
+
+Oh. Right. Um, okay. And, uh, if they were an animal... what would they be? Um, he would still be a hermit crab, just a much larger one.
+
+#### TREXEL
+
+Oh, there you go! Well, it's nice to see someone that knows what they want to be, and they're already that.
+
+#### DAVID
+
+Yes. Um, well-- but a small version of what they want to be. [__TREXEL:__ Oh, I'm sure.] They want to be bigger. Do they want to be... swole?
+
+#### TREXEL
+
+Well, I think that's very possible, David! [__DAVID:__ Ooh, alright.] Who doesn't want to be swole?
+
+#### IMOGEN
+
+##### [beep]
+
+Dyson.
+
+#### DAVID
+
+Yes, well, a swole hermit crab. Um, so their greatest strength is their chitinous shell and their pincers. [__TREXEL:__ Mm-hmm.] Um... their greatest weakness is having to deal with other people. Except for the Intergalactic Association Of Hermit Crabs And Crabby Hermits.
+
+#### TREXEL
+
+Well, of course, because they would get on. Well, David, I think that this is a great... new subject... [__DAVID:__ Right.] for today's sales lesson. Welcome to class. Here's a hat I made.
+
+#### DAVID
+
+##### [crosstalk]
+
+Right, yes. So we're not-- okay.
+
+#### TREXEL
+
+Put on... my class hat.
+
+#### DAVID [unfazed]
+
+Yeah, I'm gonna put on the...
+
+#### IMOGEN [beep]
+
+Arts and crafts detected! Security alerted.
+
+#### DAVID
+
+##### [jostles hat]
+
+It's like a pointy... hat... with stars on it?
+
+#### TREXEL
+
+It's an education hat! Now, look. I-I-I had some basic crafts at home, David, do you want to criticize my craft? [__DAVID:__ No!] I was up *all mid-morning* making that!
+
+#### DAVID
+
+It's very... glittery.
+
+#### TREXEL
+
+Exactly. All the better to learn in.
+
+#### DAVID
+
+And still wet.
+
+#### TREXEL
+
+##### [chuckling]
+
+Well,  I haven't got *glue*, David, so...
+
+#### IMOGEN
+
+##### [beep]
+
+Yikes.
+
+#### DAVID
+
+*Oh,* no*.*
+
+#### TREXEL
+
+##### [crosstalk]
+
+So, the lesson is--
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+--customer empathy.
+
+#### DAVID
+
+Oh!
+
+#### TREXEL
+
+Understanding the client's feelings.
+
+#### DAVID [tentatively hopeful]
+
+Right! Oh this-- no, this sounds really good!
+
+#### TREXEL
+
+...so that you can [__DAVID:__ Yes?] *exploit* them!
+
+#### DAVID
+
+##### [crosstalk]
+
+*Ah.* No, that scans.
+
+#### TREXEL
+
+##### [David "hm"s]
+
+What are feelings but a chink in the armor of the soul? A vector by which you can *cut* at the very heart of who someone is! And you cut them open, and grab the lovely, lovely influence from within. Yum yum yum yum. Yum yum yum. Yum yum yum,  let me take influence from your influence wound, yum yum yum.
+
+#### DAVID
+
+And this is supposed to be useful...
+
+#### TREXEL
+
+##### [pause]
+
+In *all* situations, David! You're going down to the local shop and you say to the shopkeeper, "I would like to buy a pound of yams." And they say, "that will be three credits, sir." And you say,  "I know why your wife left."
+
+#### DAVID
+
+No, that's blackmail.
+
+#### TREXEL
+
+"Give it to me for two credits or I'll tell her about your collection of hats."
+
+#### DAVID
+
+We've already *done* blackmail!
+
+#### TREXEL
+
+Well, it's emotional blackmail. It's different. It's not about actual things. It's about emotional things which aren't actual things. They're not real!
+
+#### DAVID
+
+Right. No, fine. Okay... fine. Well--
+
+#### TREXEL
+
+So, we need to get at the very core of what makes this crab tick, [__DAVID:__ Okay.] what its fears are, what its hopes are, [__DAVID:__ Brilliant.] so that we can really turn those 'round and use them to destroy them.
+
+#### DAVID
+
+This feels, again, feels wrong.
+
+#### TREXEL
+
+It-- look. David, we're really gonna have to get-- we'll get across a Rubicon here. If you keep being concerned about doing things because they're morally wrong, then we're gonna get nowhere. Sales is all about living in that gray area. You can't prove anything, but you've definitely done something evil.
+
+#### DAVID
+
+##### [Trexel sighs]
+
+I just want to cycle back to the point where, [__TREXEL:__ Mm-hmm.] you know, maybe if we just give the client what they want,  you know, maybe this is fine.
+
+#### TREXEL
+
+David, uh-- David, do you mind coming over here for a moment.
+
+#### DAVID
+
+I'll just-- I--
+
+##### [chair scraps on floor]
+
+#### TREXEL
+
+##### [chair scraps some more]
+
+Just come over closer to me.  Just come over closer to me, David.
+
+#### DAVID
+
+O-okay. Okay. Um, yes.
+
+#### TREXEL
+
+##### [quietly]
+
+David, are you trying to make a fool of me?
+
+#### DAVID
+
+What? No.
+
+#### TREXEL
+
+##### [stammers]
+
+##### [LOUDLY]
+
+"Let's give the client what they want." What if somebody *heard* that, David? What would they think of me? "Oh, oh, Geistman's gone soft," they'd say. "Oh, he wants to give the clients what they want." Maybe we should give them the sandwiches they pay for. Perhaps their planets should have all the features they paid for. "Ha ha!" That's them laughing at me, David.  "Ha ha ha. Ha ha ha ha. Ha ha ha ha."
+
+#### DAVID
+
+Wha-- no. But what of anything that you just said was wrong or bad?
+
+#### TREXEL
+
+I-I don't know!
+
+#### DAVID
+
+Well, no, but-- Yes, we should give them the sandwiches that they pay for. [__TREXEL:__ Right.] Yes, we should give them all the features that they-- on their planet that they want.
+
+#### TREXEL
+
+You sound like an inane fool, David!
+
+#### DAVID
+
+*Why?* What's the problem with this?
+
+#### TREXEL [sarcastically]
+
+Oh, oh, why don't we provide them the goods and services they paid for then.
+
+#### DAVID
+
+Exactly!
+
+#### TREXEL
+
+##### [sarcastically]
+
+Why don't we-- why don't we take their feedback on board like an* idiot*!
+
+#### DAVID
+
+No, but why-- I'm with you up until the point where you just characterize people doing this as being an idiot!
+
+#### TREXEL
+
+##### [stutters]
+
+Imagine this, David. I'm a client. [__DAVID:__ Yes.] I walk in to-- You know what? Let's do, let's do a  roleplay.
+
+#### DAVID
+
+Okay, yeah fine. We'll roleplay.
+
+#### TREXEL
+
+A roleplay. Let's do a roleplay. Roleplay.
+
+#### IMOGEN [beep]
+
+Roleplay holovision initiated.
+
+##### [electronic powering on sound]
+
+#### TREXEL
+
+Good afternoon, valued employee of Stellar Firma. I am a client. Hello. Shake my hand.
+
+#### DAVID
+
+Yes. Hello, client.
+
+#### TREXEL
+
+Guess what? That was a trap. I've already shaken you down.
+
+#### DAVID
+
+What??
+
+#### IMOGEN [beep]
+
+Roleplay holovision terminated.
+
+##### [electronic powering off sound]
+
+#### TREXEL
+
+Shake, shake, shake.
+
+#### DAVID
+
+No, that's a shaking of a hand, not shaking of a down.
+
+#### TREXEL
+
+I'm your adversary. I've shaken you down.
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+I've taken your dignity. Let's try a different simulation. Right.
+
+#### DAVID
+
+Right.
+
+#### IMOGEN [beep]
+
+Roleplay holovision initiated.
+
+##### [electronic powering on sound]
+
+#### TREXEL
+
+Good afternoon, valued employee of Stellar Firma. I am a client. Here's a reasonable request I'd like to make.
+
+#### DAVID
+
+Oh, well, perfect. Yes, well we can actually--
+
+#### TREXEL
+
+Guess what?
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+You've *died.*
+
+#### DAVID
+
+Why?
+
+#### TREXEL
+
+You've died because I have the power.
+
+#### IMOGEN [beep]
+
+Roleplay holovision terminated.
+
+##### [electronic powering off sound]
+
+#### TREXEL
+
+You accepted something from me; therefore, I own you.
+
+#### DAVID
+
+No, hang on a minute. [__TREXEL:__ Do you not see how these scenarios are--] This is not-- What do you think this is? You haven't finished these logical pathways! Like, *why?* Why am I dead? Why have, why have we lost?
+
+#### TREXEL
+
+'Cause you've lost the power, David.
+
+#### DAVID
+
+No, we are Stellar Firma Ltd. We provide a service, the service of planets to clients!
+
+#### TREXEL
+
+##### [sighs]
+
+I just don't think we're on the same page. Let's try, let's try it the other way around. You be the client [__DAVID:__ Right.] and, and I'll be the consultant.
+
+#### DAVID
+
+Okay.
+
+#### IMOGEN [beep]
+
+Roleplay holovision initiated.
+
+##### [electronic powering on sound]
+
+#### DAVID
+
+Good morrow, uh, valued, uh, employee of Stellar Firma Ltd.
+
+#### TREXEL
+
+Who the hell do you think you are? Do you even have an appointment?
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Stephanie! Stephanie! Stephanie!
+
+#### DAVID
+
+##### [as Stepanie]
+
+Uh, yes?
+
+#### TREXEL [stammers]
+
+David, sorry--
+
+#### DAVID
+
+I'm also being Stephanie.
+
+#### TREXEL
+
+No, but there's no one called Stephanie.
+
+#### DAVID
+
+No, but--
+
+#### TREXEL
+
+That's part of the power play. There's no one-- there's no Stephanie there.
+
+#### DAVID
+
+Oh, but why are you just shouting Steph--? Okay, fine, no. Well, yes, play it through. Please, continue.
+
+#### TREXEL
+
+Stephanie! Stephanie! Stephanie! Stephanie! Stephanie! Stephanie! Stephanie! Stephanie? Stephanie! Stephanie! Stephanie, get in here! Stephanie!
+
+#### DAVID
+
+Excu-- Excuse me.
+
+#### TREXEL
+
+Stephanie! Stephanie, get in here!
+
+#### DAVID
+
+I, the client, am confused as to why your--
+
+#### TREXEL
+
+##### [interrupts]
+
+Sorry, c-could you just give me one moment?
+
+#### DAVID
+
+Uh, no, yes. Of course.
+
+#### TREXEL
+
+Stephanie! Stephanie! Stephanie! Stephanie! Stephanie, get in here right now! Stephanie? Stephanie, I won't have this! Stephanie!
+
+#### DAVID
+
+Uh, well, okay, I-I don't really understand why you're, you're yelling for this Stephanie person. I've never been treated this rudely before. [__TREXEL:__ Mm-hmm.] Maybe I'll just take my business to, to Bathin Planetary Services. [__TREXEL:__ Ooh.] They have a, they have a much better rating review on Gelp anyway, so I'm just gonna--
+
+#### TREXEL
+
+Oh, well, you can't believe--
+
+#### DAVID
+
+No, no. Goodbye. Goodbye.
+
+#### TREXEL
+
+--anything you read on Gelp!
+
+#### DAVID
+
+Goodbye, sir. Sir, I said good day!
+
+#### TREXEL
+
+Stephanie!
+
+#### IMOGEN [beep]
+
+Roleplay holovision terminated.
+
+##### [electronic powering off sound]
+
+#### TREXEL
+
+I see your point there, David. [__DAVID:__ Yes.] It does seem that you, that the client really took against my approach.
+
+#### DAVID
+
+Yes. A-and I still don't really understand what the Stephanie gambit was.
+
+#### TREXEL
+
+Mm?
+
+#### DAVID
+
+The Stephanie gambit.
+
+#### TREXEL
+
+Oh, I knew someone called Stephanie once.
+
+##### [pause]
+
+#### DAVID
+
+And?
+
+#### TREXEL
+
+I don't understand.
+
+#### DAVID
+
+Right. Okay. Um, well, anyway. Let's... let's maybe-- Should we just try and understand the client?
+
+#### TREXEL
+
+That's what I've been trying to do all this time, David.
+
+#### DAVID
+
+And... without going towards the emotional manipulation part of it.
+
+#### TREXEL
+
+Well then what are we doing?
+
+#### DAVID
+
+Selling.
+
+#### TREXEL
+
+Alright, fine. Push on. Push on. [__DAVID:__ Right. Okay.] I'll try, I'll try and make my lesson clearer to you because you're *clearly* not understanding it yet.
+
+#### DAVID
+
+Right. Okay. Well, this is, uh, Kaldor the Chitinous. [__TREXEL:__ Okay.] Um, they are the leader of the Intergalactic Association of Hermit Crabs and Crabby Hermits.
+
+#### TREXEL
+
+That is a very paranoid organization. [__DAVID:__ Right.] The hermit crab lives and breathes to hide inside its shell. [__DAVID:__ Right.] On top of that, the hermit in hermit crab should imply to you that the houses they're in, the shells, they found them. They didn't even make them. They don't make things. They're scroungers! And they're very sensitive about that which is why they hide from all the criticism inside that shell they didn't make.
+
+#### DAVID
+
+Right. So-- But this Kaldor [__TREXEL:__ Mm-hmm.] wants, wants a planet. They want to settle down.
+
+#### TREXEL
+
+Okay.
+
+#### DAVID
+
+Right? Because a planet is quite a big investment, okay.
+
+#### TREXEL
+
+It's a big investment.
+
+#### DAVID
+
+Yes. And they also, interestingly, want a planet that is inside-out.
+
+#### TREXEL
+
+Right, I don't understand why they'd *want* that though. [__DAVID:__ Well, certainly--] Surely, they'd want a planet that's outside-in.
+
+#### DAVID
+
+Well, no, they want a planet that reflects their hard-outer shell but their rich inner life. Now, see, this is the thing. Perhaps you've taken a surface level reading of a hermit crab, or indeed a crabby hermit, and you've not asked yourself why? [__TREXEL:__ Hmm.] Why have they done these things? Why do they inhabit these shells? Why do they, they travel from place to place and never put down roots exactly? [__TREXEL:__ Interesting.] Why are these hermits so crabby?
+
+#### TREXEL
+
+Interesting, David. Because it sounds to me like you're trying to understand the client's feelings.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+That's part one. We'll stick with part one--
+
+#### DAVID
+
+Ah, no, that's part everything.
+
+#### TREXEL
+
+##### [crosstalk]
+
+No, we'll stick with part one and I'll tell you how to move on to part two later.  But let's really engage in part-- Let's, let's develop part one.
+
+#### DAVID
+
+##### [crosstalk]
+
+##### [trailing off]
+
+Okay, well let's just really develop part one. Alright, we'll develop part one  and then not move on to...
+
+#### TREXEL
+
+Why would the hermit crab, the crabbiest of all hermits, the hider away, the personal fortress maker, [__DAVID:__ Hmm.] want to show things to other people? It seems to flap in the face of the entire bird of truth!
+
+#### DAVID
+
+Hmm. Exactly. And they, they want something that reflects their hard-outer shell. Now, there are two readings of this. One--
+
+#### TREXEL
+
+Fortress! [__DAVID:__ What?] A cultural fortress! Weapons on the walls! Shields in the skies! Canons aloft! [__DAVID:__ Okay--] Look, I did a painting but *you're gonna die for looking at it!*
+
+#### DAVID [puzzled]
+
+Well, first of all, we're not designing the planet.
+
+#### TREXEL
+
+No, sorry. I'm very much still in the mode of designing a planet.
+
+#### DAVID
+
+And also, they want an inside-out planet, so a fortress doesn't sound very inside-out! And this is an inside-out fortress [__TREXEL:__ Fortress inside.] where all the guns are pointing onto the *core* of the planet... No, I'm designing the planet now! Stop!
+
+#### TREXEL
+
+Let's design planets.
+
+#### DAVID
+
+No! Let's not do this.
+
+#### TREXEL
+
+I-I've got this little fortress design I drew [__DAVID:__ No!] on a napkin if you want.
+
+#### DAVID
+
+##### [dramatically]
+
+No! I promised myself I'd never go back... to the pod-less times... of planet design.
+
+#### TREXEL
+
+Who did you promise?
+
+#### DAVID
+
+##### [startles]
+
+What?
+
+#### TREXEL
+
+Who did you promise?
+
+#### DAVID
+
+Me. David.
+
+#### TREXEL
+
+You promised something to yourself?
+
+#### DAVID
+
+Yes!
+
+#### TREXEL
+
+That's foolish. You don't have to keep promises to yourself. What are you gonna do?
+
+#### DAVID
+
+Keep promises to myself and grow as a person?
+
+#### TREXEL
+
+Sounds like a *coward's* way out.
+
+#### DAVID
+
+Right... Um, speaking of growing and being a person, [__TREXEL:__ Yeah.] what do they like? So, we know these things about them: they want the inside-out planet, they want something that reflects their hard-outer shell. Now maybe that's a, a *reversal* of their hard-outer shell. Or, something that is, uh, representative of their hard-outer shell. But we'll, we'll get to this. We'll get to this.
+
+#### TREXEL
+
+It's a-- I mean, it sounds like a gooey planet with a hard core.
+
+##### [pause]
+
+#### DAVID
+
+Maybe. But that's a planet design.
+
+#### TREXEL
+
+Sorry. It's tricky not to do that.
+
+#### DAVID
+
+Kaldor the Chitinous is not a gooey planet with a hard core. They are a gooey person with a hard-outer shell.
+
+#### TREXEL
+
+##### [sarcastically]
+
+The planet *is* the person. The thing is [__DAVID:__ Yes.] a planetary design is a reflection of the person itself. [__DAVID:__  Oh!] So, if you're trying to sell to a person--
+
+#### DAVID
+
+##### [sarcastically]
+
+That would have been so useful if we had a proper psychological profile of the client when we were designing planets instead of, like, a *one-sentence brief*!
+
+#### IMOGEN [beep]
+
+Critical sass detected. Security alerted.
+
+#### TREXEL
+
+Are you, are you quite done, David?
+
+#### DAVID
+
+Ah, uh... y-yes.
+
+#### TREXEL
+
+Because it, it sounds like you're up on your *high horse* there.
+
+#### DAVID
+
+No, I'm down on a low--
+
+#### TREXEL
+
+Are you down?
+
+#### DAVID
+
+--low, low chair.
+
+#### TREXEL
+
+Go and get down on that low chair.
+
+##### [chair scraps on floor]
+
+#### DAVID [meekly]
+
+Okay. I'm on the lower chair.
+
+#### TREXEL
+
+##### [pause] [quieter]
+
+Because I'm still in charge, David. I know we've all been promoted but I'm still higher than you in this *pecking* order. Peck peck peck!  Peck peck peck.
+
+#### DAVID
+
+Okay, well, um, let's just talk about Kaldor the Chitinous's likes and dislikes then.
+
+#### TREXEL
+
+Okay, fine.
+
+#### DAVID
+
+##### [stutters]
+
+Within the context. So, they like being themselves.
+
+#### TREXEL
+
+##### [pause, sighs]
+
+Hmm. Who doesn't like being themselves?  Dyson, I suppose.
+
+#### DAVID
+
+Uh, yes, anyway. So, Kaldor the Chitinous, um, yes, so, so he likes being himself. But he dislikes neighbors, solicitors, and well-wishers. [__TREXEL:__ Hmm.] So, so they, so he wants, he wants somewhere where he can be comfortable. So, somebody-- He is comfortable in his own company and in his own skin.
+
+#### TREXEL
+
+I think... here's the tactic, David. Here's where I've really homed in on the emotional likes and dislikes of a person [__DAVID:__ Okay.] that we can then turn into a weapon.
+
+#### DAVID
+
+No! No! Okay, we'll-- I just homed in--
+
+#### TREXEL
+
+##### [interrupts]
+
+Okay, so what we're going to do is they do not like other people. They don't like confrontation. They're a hermit crab, yes. [__DAVID:__ Yes.] They have to, they have to cover themselves in armor because, on the inside, they're sensitive, they're soft, they're gooey. So, it's a reaction to the world. So, if you go into that room with a hermit crab and do the hard sell, the pushy sales tactic, you tell them that *you* need this, that this is something that's important for *you*. You tell them that there's another buyer in the other room and you really hot house them, and you pressure them. And then they're going to crack under the pressure because why wear all that armor *unless under it you're a soft, wobbly coward*?!
+
+#### DAVID
+
+##### [apprehensive]
+
+I don't like this.
+
+#### TREXEL
+
+##### [stammers]
+
+Well,  this is sales, David. Are you saying you don't like sales?
+
+#### DAVID
+
+No, it doesn't have-- no, it doesn't have to be sales. No, I love sales. I love sales! Sales is great. And I'm very happy for the promotion. Thank you very much, the Board.
+
+#### TREXEL
+
+Okay, how would you approach it then?
+
+#### DAVID
+
+Me?
+
+#### TREXEL
+
+Yes. Oh, let's-let's t-- give *me* the hat. Give me the sparkly hat. I've actually quite wanted to wear it for most of the session anyways.
+
+#### DAVID
+
+Okay, well, you can have the sparkly hat. It's dried a bit wonky but...
+
+#### TREXEL
+
+##### [singing]
+
+Ohh, that's a coquettish hat.  ♪ Oh, yeah! Coquettish man in a coquettish hat. Ooh! Where'd you get that hat? [__DAVID:__ From-from David.] Baby! [__DAVID:__ Well, you made it.] Got it from my imagination. Made it on this space station! ♫
+
+#### DAVID
+
+Okay. Uh, well it says "student" on it so, so you should *listen*. For this is my time.
+
+#### TREXEL
+
+Oh, I cannot, I cannot disobey the law of the hat. Why did I write "student" on it if the wearer was not one?
+
+#### DAVID
+
+Exactly.
+
+#### IMOGEN [beep]
+
+Hat-olitive determinism.
+
+#### DAVID
+
+So, my tactic would be to go in--
+
+#### TREXEL
+
+Oh, I'm so bored!
+
+#### DAVID
+
+--have a good-- No!
+
+#### TREXEL
+
+Oh, I'm so bored of this lesson!
+
+#### DAVID
+
+Geistman! Stop talking in class!
+
+#### TREXEL
+
+Well, I--
+
+#### DAVID
+
+Get in the corner!
+
+#### TREXEL
+
+No, I don't want to sit in there. That's where Perkins sits, and he's got a stinky butt.
+
+#### DAVID
+
+No. Perkins, get your stinky butt and sit in Geistman's chair and put your butt stink on Geistman's butt chair.
+
+#### TREXEL
+
+I don't want Perkins's butt stink on my butt chair!
+
+#### DAVID
+
+##### [Trexel groans]
+
+##### [pause]
+
+Well, you've got Perkins's butt stink on your bad chair now, Geistman, so go sit in the corner where stinky Perkins has already,  so sit in the stink butt. And then the stink butt's here and now everything is stinky butts in your life because you didn't listen in class.  Ahem.Anyway... right. So, the way that I would approach this--
+
+#### TREXEL
+
+Can I get out of the corner please?
+
+#### DAVID
+
+No! You must listen to your teacher.
+
+#### TREXEL
+
+I don't like this hat.
+
+#### DAVID
+
+So. Uh, when you--
+
+#### TREXEL
+
+Worse than the sock hat.
+
+#### DAVID
+
+What-- Hm. Geistman.
+
+#### TREXEL
+
+##### [softly]
+
+Yes?
+
+#### DAVID
+
+I'm here to teach you. Okay?
+
+#### TREXEL
+
+In this very specific scenario, yes.
+
+#### DAVID
+
+Yes. So there, there is a social contract between us... and I'm gonna respect my side of the social contract and you need to respect your side of the social contract.
+
+#### TREXEL
+
+When have I ever respected a contract in my entire life, David?
+
+#### DAVID
+
+Right. That's it. No, cancel the lesson.
+
+#### TREXEL
+
+What?!
+
+#### DAVID
+
+Cancel-- School's over! I've burned down the school!
+
+#### TREXEL
+
+Excellent! That's exactly what I was hoping for!
+
+#### DAVID
+
+##### [crosstalk]
+
+Take-- Oh, no, no, no! School's back on. I've-- no, I've re-- No. No!
+
+#### TREXEL
+
+##### [crosstalk]
+
+Ha ha! You've played into my hand! No! You can't reinstate a school that's burned down!
+
+#### DAVID
+
+##### [figuratively shaking his fist]
+
+Ooh, Geistman!
+
+#### TREXEL
+
+Ooh, I'm a wily fox.
+
+#### DAVID
+
+Right. Um, can I say the thing now?
+
+#### TREXEL
+
+##### [threatening]
+
+Yeah, no, absolutely. I just wanted to really make sure you knew who was in charge or I'll set your school on fire.
+
+#### IMOGEN [beep]
+
+Scholastic arson detected. Security alerted.
+
+#### DAVID
+
+##### [sighs]
+
+Okay, well, the school was my house so...
+
+#### TREXEL
+
+Keeping the hat on though.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+I like that.
+
+#### DAVID
+
+Right, well, if I may--
+
+#### TREXEL
+
+What were you saying?
+
+#### DAVID
+
+Okay, so I'm gonna go in and talk to Kaldor the Chitinous...
+
+#### TREXEL
+
+Sure.
+
+#### DAVID
+
+##### [stutters]
+
+Going to really understand them and ask them a bunch of questions about them to, to really develop on these likes and dislikes. Because, of course, this brief is only  a literal brief questionnaire about them. And really, as a good salesperson, I should really talk to the client and understand their needs and wants. Take notes. Take detailed notes about exactly what they want, and then send those notes to the design team. So that a consultant can take this and go, "yes, thank you, the Sales Team."
+
+#### TREXEL
+
+##### [stammers]
+
+But,  what have you won from that, David? What have you, what have you torn from the client's cold dead hands?
+
+#### DAVID
+
+Business. Satisfaction.
+
+#### TREXEL
+
+They could've-- The-- You could've--
+
+#### DAVID
+
+A good Gelp review.
+
+#### TREXEL
+
+You could have just put a tape recorder in that room and then sent the recording.
+
+#### DAVID
+
+No. That's the point. The client won't open up themselves 'cause the client is a hermit crab.
+
+#### TREXEL
+
+##### [crosstalk]
+
+Oh, and you've gotta stab a knife into the  side of the hermit crab and twist and pop open the shell. Yum yum yum yum yum. Give me those truths. Yum yum yum yum yum.
+
+#### DAVID
+
+##### [crosstalk]
+
+No! No, coax. Coax. No. No! Don't break the outside-- No. No, no. Don't-- Don't eat the client! We can't eat the client.
+
+#### TREXEL
+
+Okay.
+
+#### DAVID
+
+If we eat the client--
+
+#### IMOGEN [beep]
+
+Warning: shucking of clients will not be tolerated.
+
+#### TREXEL
+
+Alright, David. I'm willing to let you lead this next meeting with your approach.
+
+#### DAVID
+
+Me?
+
+#### TREXEL
+
+Your soft, kind approach.
+
+#### DAVID
+
+Me?
+
+#### TREXEL
+
+And we'll see-- Yes. You can-- You're a big clone now [__DAVID:__ Okay.] with your big clone shoes. And I'm wearing the student hat. I'm gonna wear the student hat through the *whole* client meeting. [__DAVID:__ Okay.] And we're gonna see how that turns out. [__DAVID:__ Right.] And at the end, you're gonna see what happens when you ask a client what they want, they tell you, and then you *go with it*. Okay?
+
+#### DAVID
+
+##### [stammers]
+
+Uh, you promise?
+
+#### TREXEL
+
+I prom-- I promise. I'd, I swear on all that is Board.
+
+#### DAVID
+
+Okay, and, and the Board's recorded that.
+
+#### IMOGEN [beep]
+
+Oath recorded. Oaths sworn on the Board are sacrosanct.
+
+#### TREXEL
+
+There you go.
+
+#### DAVID
+
+Right, so that's on record now.
+
+#### TREXEL
+
+That's on record.
+
+#### DAVID
+
+So, you can't go back on that.
+
+#### TREXEL
+
+Why would I ever go back on record other than the many millions of times I have gone back on what I have said?
+
+#### DAVID
+
+##### [loud knocks begin]
+
+Right, well, at least I'll have... proof this time. Anyway, um,  so, okay, okay. I will...
+
+##### [pause]
+
+#### TREXEL
+
+Time to go in.
+
+#### DAVID
+
+##### [knocking pauses]
+
+I'm gonna step through that door--
+
+#### TREXEL
+
+##### [David takes a deep breath]
+
+##### [wiggling jelly noises]
+
+Are you ready for this, David? Are you ready for this jelly?  Would-- I mean, would you like this jelly  to eat before the, before the meeting?
+
+#### DAVID
+
+Oh! Oh, is it clone jelly?
+
+#### TREXEL
+
+Oh, it's clone jelly. You can't have regular jelly.
+
+#### DAVID
+
+Oh, yes, yes, please. Thank you very much.
+
+##### [more jelly noises]
+
+#### TREXEL
+
+It's just slurry that, that's got pectin in it.
+
+#### DAVID
+
+Mm-num. Delicious.
+
+#### TREXEL
+
+Mm. Pectin.
+
+#### DAVID
+
+Wobbly.
+
+#### TREXEL
+
+Wa-hoo.
+
+#### DAVID
+
+##### [loud knocks resume]
+
+Mm. Omph. In my, in my tum. Anyway--  yes, no. So, I'm very, very ready. Uh... I think. Yes.
+
+#### TREXEL
+
+Let's do this.
+
+#### DAVID
+
+Let's go! Avant... David!
+
+#### TREXEL
+
+That's my thing, David.
+
+##### [large door opens]
+
+#### DAVID
+
+##### [stammers]
+
+##### [echoing]
+
+##### [background hermit crab noises]
+
+Oh, well--  Ah, Kaldor.  Kaldor the Chitinous. Gosh, your gel is just looking so glossy and shiny. Now, let's get to business!
+
+##### [show theme starts]
+
+#### IMOGEN
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Lowri Ann Davies with executive producer Alexander J. Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, and Trexel Geistman was played by Tim Meredith. The episode was edited by David Devereux and Alexander J Newall, with music by Samuel DF Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook or email us via mail@rustyquill.com. May the Board preserve and keep you.

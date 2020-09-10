@@ -1,0 +1,1373 @@
+---
+layout: post
+title: SPORTS AND SHAPES
+date: 
+categories: episode
+tags: 
+episode_number: '22'
+
+---
+
+# __EPISODE 22 - SPORTS AND SHAPES__
+
+## Transcribed 11/27/19 via stellarscripts on tumblr
+
+#### ALEX
+
+Hi everyone, Alex here. I'd just like to take a moment to thank some of our patrons: Jordan and Kelly Bryan, Ofek Barkol, Helen, Sheryl R. Hayes, Richard Gomersall, Emily Harford, Heather Nichols, Mary Allison, Gaia Turtle, Jo, Thomas, Joseph Connolly, Benjamin Zilke, Jess, Andrew Fox, Matthew Sobiesk, Christine Abrenilla, Casey Berry, Lauren Anthony, John Archibald Getty the 4th, Nicholas Cole. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+#### TREXEL
+
+Special thanks to bunnywithaswitchblade. May your day dawn with a minimum of scorn.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+#### DAVID
+
+##### [voice gets louder and angrier]
+
+##### [quieter]
+
+Should I feel bad about this? No, no no *no*. He's an idiot and he could get me killed. I need to do this. But it is like tricking a baby. I mean, a big, sad, lonely, stinking,  loud, mean, stupid, murderous baby that has imprisoned me in this room and *might as well be a god*!  No, keep it together. Keep it together, David. Just-just stay the course. IMOGEN?
+
+#### IMOGEN [beep]
+
+IMOGEN online. How can I help you...
+
+"__DAVID: [recorded]__ Um... David 7?"?
+
+#### DAVID
+
+Check design brief submissions. Umm, any alerts? Any... oh, I don't know, late notices?
+
+#### IMOGEN [beep]
+
+No abnormalities detected. If there were, you would be dead already.
+
+#### DAVID
+
+Right. Right. Thanks... I guess.
+
+##### [footsteps]
+
+##### [door swooshes open] [door swooshes closed]
+
+#### TREXEL
+
+David.
+
+##### [David yells in surprise]
+
+#### TREXEL
+
+David, I'm bleeding.
+
+#### DAVID
+
+What? Trexel! What?
+
+#### TREXEL
+
+David, I am bleeding a little bit. Have you got any swabs, David, or perhaps some sort of handkerchief?
+
+#### DAVID
+
+##### [stammers]
+
+Well, there's this first aid kit there__--__
+
+##### [error buzz, David being shocked]
+
+#### IMOGEN
+
+Access denied.
+
+#### DAVID
+
+__[____crosstalk____]__ Oh, it tased me.
+
+#### TREXEL
+
+__[____crosstalk____]__ Don't touch that. It's not for you. It's for me.
+
+#### DAVID
+
+__[____crosstalk____]__ Okay, well you get it.
+
+##### [error buzz, Trexel being shocked]
+
+#### IMOGEN
+
+Access denied.
+
+#### TREXEL
+
+So, I__--__ That is a__--__ that is a line manager's first aid kit. Hang on, I'll get__--__
+
+#### IMOGEN [beep]
+
+Access granted.
+
+##### [whoosh of first aid compartment opening]
+
+#### TREXEL
+
+##### [opens kit]
+
+##### [first aid kit being put back]
+
+There it is. That's a consultant's first aid kit. So, let's just pop that open there.  Cotton swab, bandage, stem the flow. And there we go. All sorted. Pop that back up there.  How are you?
+
+#### DAVID
+
+Um, not bleeding.
+
+#### TREXEL
+
+No! Why not? Give it a go!
+
+#### DAVID
+
+No. I don't want to bleed, thank you. I mean, I'm sure I *can* bleed but I'd rather not find out.
+
+#### TREXEL
+
+__[____crosstalk____]__ Let's find out.
+
+#### DAVID
+
+__[____crosstalk____]__ No! Let's not find out!
+
+#### TREXEL
+
+__[____crosstalk____]__ Let's find out if you can bleed!
+
+#### DAVID
+
+__[____crosstalk____]__ No! No, let's not find out!
+
+#### TREXEL
+
+Okay. Your funeral.
+
+#### DAVID
+
+No! Well, the oppo__--__
+
+#### IMOGEN [beep]
+
+Death is only permissible by order of The Board.
+
+#### DAVID
+
+Fine. We have another brief here.
+
+#### TREXEL
+
+You don't want to know *why* I was bleeding, David? You seem very uninterested in the *bleeding* of your immediate superior.
+
+#### DAVID
+
+Fine. Why were you bleeding, Trexel?
+
+#### TREXEL [
+
+__crosstalk____]__ It's none of your business, David.
+
+#### DAVID
+
+Right. Well, time to get on with the__--__
+
+#### TREXEL
+
+But as you've asked, I've been gambling. I love a gamble, David! You know me. A man of chance. A man of odds. A man of action. A man *in* action. Actionable activity__--__ I've got lost, but the important thing__--__
+
+#### DAVID
+
+##### [under breath]
+
+More like an odd chancer.
+
+#### TREXEL
+
+__--__Beg pardon?
+
+#### DAVID
+
+Sorry?
+
+#### TREXEL
+
+Sorry, what was that, David?
+
+#### DAVID
+
+Nothing.
+
+#### TREXEL
+
+Sorry, what was that, David? You had something to say there.
+
+#### IMOGEN [beep]
+
+Sass detected. Security alerted.
+
+#### DAVID
+
+Uh, sounds like you're a real gambler.
+
+#### TREXEL
+
+Yes, a real hot dog gambler. And I might have ended up owing a little bit of money to people who were very, very cross when I didn't have the actual money, and they might have attacked me... with a bat. Now, this is part of gambling, David. You can't have a good night unless somebody's trying to make it your *last* night. That's what makes it fun.
+
+#### DAVID
+
+Right. That's the Trexel Geistman way, is it?
+
+#### TREXEL
+
+It's the Geistman way!
+
+#### DAVID
+
+Yes, well, speaking of the Geistman way, hopefully Geistman can make his way to the *brief* that we're doing.
+
+#### TREXEL
+
+Oh, good segue, David! Well segued.
+
+#### DAVID
+
+Right.
+
+#### IMOGEN [beep]
+
+Initiating.
+
+#### DAVID
+
+Well, anyway, this one is from Bellonda Ghodrak.
+
+#### TREXEL
+
+Bellonda Ghodrak. What a lovely sounding name. Bellonda Ghodrak.
+
+#### DAVID
+
+Bellonda Ghodrak.
+
+#### TREXEL
+
+Bellonda...
+
+__TREXEL and DAVID:__ --Ghodrak?
+
+#### TREXEL
+
+Bellonda Ghodrak.
+
+#### DAVID
+
+Bellonda Ghodrak.
+
+#### TREXEL
+
+It's both a question and an answer. It's a--
+
+#### DAVID [playing with pronunciation]
+
+Be-llonda Gho-drak.
+
+#### TREXEL
+
+Don't overwork it, David.
+
+#### DAVID
+
+Oh. Well...
+
+#### TREXEL
+
+Let's not, let's not overwork it into some sad dough.
+
+#### DAVID
+
+Alright, well, fine.
+
+#### IMOGEN [beep]
+
+Sad bread will not be permitted.
+
+#### DAVID
+
+Well, uh, they are asking, "Why do they want this planet built?" Ah, oh. Oh, speaking of sad dough, their home world was destroyed by invading space whales.
+
+#### TREXEL
+
+Oh no. How sad for them.
+
+#### IMOGEN [beep]
+
+Beware the space whale, bringer of the end times.
+
+#### DAVID
+
+Yes. The one feature the design must have: their species cannot stand right angles.
+
+#### TREXEL
+
+Mmhmm.
+
+#### DAVID [yelling]
+
+"THERE CAN BE NO RIGHT ANGLES!"
+
+#### TREXEL
+
+Easy, David.
+
+#### DAVID
+
+But it was in caps.
+
+#### TREXEL
+
+Yeah, well, I understand but you--
+
+#### DAVID
+
+##### [yelling]
+
+"BUT THERE CAN BE NO RIGHT ANGLES!"
+
+#### TREXEL
+
+You are not a slave to capitalization or punctuation, David.
+
+#### DAVID
+
+##### [yelling]
+
+No, but it says right here, "My species can't stand right angles.  THERE CAN BE NO RIGHT ANGLES!"
+
+#### TREXEL
+
+##### [grabs paper]
+
+David, give me that!
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Unless you're going to behave with a capitalization and punctuation interpretation, thereof--
+
+#### DAVID
+
+Just trying to be true to the spirit of the brief.
+
+#### TREXEL
+
+##### [paper rustle]
+
+Okay, well, I respect that. But I also hate that. Here's your brief back.  Play nicely.
+
+#### DAVID
+
+Right. Well.
+
+#### TREXEL
+
+Okay, so, their home world was destroyed by the space whales. Now, do you know much about the space whales, David?
+
+#### DAVID
+
+Uh, no. I've heard of Star Marlins. Are they anything to do with space whales?
+
+#### TREXEL
+
+Ahh. Interestingly you mentioned them because they have *everything* to do with space whales.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+They are the space whales' greatest enemy, the Star Marlin. In fact, most of the great events of the universe have been a juxtaposition between the order of the Star Marlin and the *chaos* of the space whale.
+
+#### DAVID
+
+Right. Okay, so they're sort of a chaotic, space aquatic empire.
+
+#### TREXEL
+
+Yes, because a Star Marlin, more of a cartilaginous fish and a space whale, more of a mammal. And that always angers two species against each other. "Ooh, I spawn with eggs." "Ah, I give birth to live young and have a womb." You know, they're never going to get on.
+
+#### DAVID
+
+...Right.
+
+#### TREXEL
+
+And they never have.
+
+#### DAVID
+
+No. And it sounds like Bellonda Ghodrak has been caught up in this. Um--
+
+#### TREXEL
+
+Yes. They probably sided with a Star Marlin in some way. Maybe, maybe included them in one of their art exhibitions or perhaps signed a treaty.
+
+#### DAVID
+
+Maybe. I mean, they're not-- they aren't a Star Marlin, are they? Bellonda Ghodrak?
+
+#### TREXEL
+
+No! No no no no. No. The Star Marlin's a Star Marlin. It's a Star Marlin. Unless it's a Star Marlin, it's not a Star Marlin.
+
+#### DAVID
+
+Right, so they're all called Star Marlin.
+
+#### TREXEL
+
+All called Star Marlin.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+They know who each other are. We know them as Star Marlin.
+
+#### DAVID
+
+Oh! Oh right, okay.
+
+#### TREXEL
+
+Whereas with space whales it's like, "Look, there's Chris, the space whale." "Oh look. Krillonya, the space whale." "Judith. She's a space whale." You know, it's-- it's a more simple system.
+
+#### DAVID
+
+Okay. Well, it seems like their home world has been destroyed by... Judith. Umm--
+
+#### TREXEL
+
+We don't know if it *was* Judith! Could have been. Judith is vengeful. A vengeful space whale indeed. In fact, the entirety of this design, David, the entirety of this design has to be all about defense against space whales. Space whale me once, shame on you. Space whale me twice, shame on two. And then three comes along with a big bucket of shame and chucks it in your face.
+
+##### [...]
+
+#### DAVID
+
+Okay. So, we're going to have to build a fortress without any right angles.
+
+#### TREXEL
+
+Yes. A curvy fortress. A sultry, curvy fortress. "Oh, trying to attack me. Trying to hit me with, perhaps, a flung comet. Oh, it's just *curving* off this space and out and into a sun."
+
+#### IMOGEN [beep]
+
+Sexy architecture detected. Security alerted.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+You can't hit what you can't measure with a right angle.
+
+#### DAVID
+
+...*Right*. So, we're starting off with a ball then?
+
+#### TREXEL
+
+Well, let-- let's not go straight to ball, David. I know we always tend towards balls because, you know, they naturally occur when gravity pulls particles into a central position and then *mashes* them into a thing. Y-- you end up with a ball nine times out of ten.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Perhaps more of an oblate spheroid. No, no, that's kind of nearly a ball anyway. Um, alright, alright, alright. An oblong. Sort of like a-- Have you ever seen, um, a sports ball?
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+You've never, never seen a sports ball?
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+Well, it's like a sports ball. Sort of like pointy at two ends, roundish in the middle. You'll still call it a ball but if you try and roll it to someone, it just sort of waddles about like a *spheroid* idiot.
+
+#### DAVID
+
+Doesn't sound like a very good ball then.
+
+#### TREXEL
+
+It's a terrible ball but people still use them! I think it's for throwing or something. I don't know. I don't do sports. I watch them but only when I'm gambling on them and then the butt comes out and then *I'm sorry, I'm sorry*! And a fun night's had by all.
+
+#### DAVID
+
+Okay. Right. Well, I mean, you know, we could even design the-- the planet to look like a baseball bat, if you want.
+
+#### TREXEL
+
+Well, let's not get ridiculous, David. Design it like a baseball bat? Space whales *love* baseball! They'll spot that from an eon away. Eon's a measurement of time!
+
+#### DAVID
+
+Are they going to destroy it though?
+
+#### TREXEL
+
+I don't know.
+
+#### DAVID
+
+Would you destroy something you love?
+
+#### TREXEL
+
+##### [getting more and more emotional]
+
+I destroy everything I love, David.
+
+##### [pause]
+
+#### DAVID
+
+Okay, no. Actually, back it--
+
+#### TREXEL
+
+I destroy everything I love! It's all ash in my mouth, David!
+
+#### IMOGEN [beep]
+
+Warning! Consultant spiraling.
+
+#### TREXEL
+
+##### [laughs]
+
+--I hold onto it and I grip it and it suffocates in my hands.
+
+#### DAVID
+
+Really should have seen that one coming.
+
+#### TREXEL
+
+##### [screams]
+
+*Why?!*
+
+#### DAVID
+
+Are you done?
+
+#### TREXEL [calm]
+
+I am done.
+
+#### DAVID
+
+Good.
+
+#### TREXEL
+
+That was more of a contained one there.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+Push it back down. Close the lid. Pop a lock on.
+
+#### DAVID
+
+Congratulations.
+
+#### TREXEL
+
+Thank you!
+
+#### DAVID
+
+Right. So, we've got a... sports ball shaped one. And-- and actually--
+
+#### TREXEL
+
+Yes. Torpedoid.
+
+#### DAVID
+
+Yes. Well, the interesting thing is that they've specifically said right angles. That doesn't actually mean angles at all.
+
+#### TREXEL
+
+Oh, I suppose you're right.
+
+#### DAVID
+
+So, triangles.
+
+#### TREXEL
+
+We could have a triangle.
+
+#### DAVID
+
+Not a right-angle triangle, obviously.
+
+#### TREXEL
+
+So-- so-- so, you could-- you could have-- you can have an acute angle and you can have an obtuse angle.
+
+#### DAVID
+
+Yes. Maybe an octagon. A polyhedron.
+
+#### TREXEL
+
+A dodecahedron.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+A... *tri*decahedron.
+
+#### DAVID
+
+I suppose so.
+
+#### TREXEL
+
+A demispherahecadedron.
+
+#### DAVID
+
+Not even sure what that one is.
+
+#### TREXEL
+
+New shapes, David. Let's make shapes that defy the very laws of reality. "Try and look at this shape, moron! Your eyes have fallen off!"
+
+#### DAVID
+
+Okay. So, you've... you've been asked to design a planet and now you're trying to design a new shape?
+
+#### TREXEL
+
+You know, you're right David. I'm getting sidetracked. I do that. It's-- it's a symptom of the creative brain that I have. But you? You're my anchor. You're my rock. You bring me back down with your negativity and sad, sad eyes. So, let's-- let's ignore the new shapes things, David. [__DAVID:__ Well, let's--] Let's not get bogged down in new shapes.
+
+#### DAVID
+
+Let's build a pyramid then.
+
+#### TREXEL
+
+Let's build a pyramid! A sports pyramid!
+
+##### [...]
+
+#### DAVID
+
+A sports pyramid?
+
+#### TREXEL
+
+We somehow decided on sports and we're going with it. It's a sports pyramid!
+
+#### DAVID
+
+Okay. A sports-- So some sort of big stadium?
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+That's a planet?
+
+#### TREXEL
+
+__[____crosstalk____]__ No, hang on. Hang on, hang on, hang on.
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+Stadiums. Stadia. Stadfarms. We've been here, David. Let's not re-furrow old ground. That's already been furrowed! There's seeds in there, you idiot! Stop plowing up seeds!
+
+#### DAVID
+
+*You're* the one who brought up sports! And we were doing bloodsports there, so *you're* bringing up seeds! You need to unfurrow your farrows.
+
+#### IMOGEN [beep]
+
+Agricultural sass detected. Security alerted.
+
+#### TREXEL
+
+Okay. Okay, David. Let's-- let's unfurrow.
+
+#### DAVID
+
+Alright, no sports.
+
+#### TREXEL
+
+No sports.
+
+#### DAVID
+
+No sports at all.
+
+#### TREXEL
+
+No sports.
+
+#### DAVID
+
+...Or gambling.
+
+#### TREXEL
+
+What do you mean "no gambling?"
+
+#### DAVID
+
+Gambling's a sport.
+
+#### TREXEL
+
+A sport? A sport?! It's a game of skill!
+
+#### DAVID
+
+Like sports.
+
+#### TREXEL
+
+##### [to himself]
+
+##### [to David]
+
+I suppose it is a little bit like sport.  So, you're saying that my gambling is, is fundamentally unoriginal and therefore for me to continue to gamble would, would make me an unoriginal person. Is that what you're saying, David?
+
+#### DAVID
+
+Yeah, why not.
+
+#### TREXEL
+
+God, you really needled me there, David. I love gambling and... and you've logic trapped me, David.
+
+#### DAVID
+
+Well, then you love sports.
+
+#### TREXEL
+
+You've put me in a logic trap.
+
+#### IMOGEN [beep]
+
+Logic trap sprung. Security alerted.
+
+#### TREXEL
+
+__[____crosstalk____, screams]__ I'm in a logic trap! Please, free me! Free me! Can I have a cup to rattle about on the bars?
+
+#### DAVID
+
+__[____crosstalk____]__ Okay, it's not a physical trap. No. Stop climbing up on your chair! No. Get out of your chair!
+
+#### TREXEL [yelling]
+
+I need *water*!
+
+#### DAVID
+
+Just put your legs out!
+
+#### TREXEL
+
+* Justice!!*
+
+#### DAVID
+
+There's slurry over there!
+
+#### TREXEL
+
+*Justice!!*
+
+#### DAVID
+
+You can have it freely.
+
+#### TREXEL
+
+Are you releasing me from your logic prison, David?
+
+#### DAVID
+
+You put yourself there.
+
+#### TREXEL
+
+You're the logic jailer, David. You've got the logical key. [__DAVID:__ Well...] You've put me in here, David. This is your fault.
+
+#### DAVID
+
+Well, you're the one who didn't want sports!
+
+#### TREXEL [
+
+__crosstalk____]__ Well, I'm in your logic prison! Ahh, help me!!
+
+#### DAVID
+
+__[____crosstalk____]__ Oh, fine. Alright! Well, we're allowed sports.
+
+#### TREXEL
+
+##### [deep breath]
+
+Ahh, the logic freedom.  Ahh, the fresh air of logical freedom. Free to think. Free to feel. Free to do without the *fascist* David 7 telling me what my *mind* policeman should say.
+
+#### DAVID
+
+Yes, alright. You win. We'll build a stadium.
+
+#### TREXEL
+
+##### [excited]
+
+We're building a stadium! That's what I always wanted.
+
+#### DAVID
+
+A big pyramid.
+
+#### TREXEL
+
+A big pyramid stadium dedicated entirely to gambling. A pyramid sports casino. Thank you, David. That's what we're doing. Right, so. Back to the brief. We're building a pyramid gambling stadium for sports. So, what do they want again? How do we word this into the thing that I want to do?
+
+#### DAVID
+
+Well, their home world was destroyed by space whales.
+
+#### TREXEL
+
+Space whales *abhor* gambling.
+
+#### DAVID
+
+Rights, so you want to use that to keep them away?
+
+#### TREXEL
+
+Yes. They'll be like, "Ooh, what's that? Is that something we can destroy? Aah, they're playing blackjack! Abort! Abort!"
+
+#### DAVID
+
+Okay, and they're definitely not going to follow up *that* thought with, "Let's destroy the place that has the thing we abhor in it."
+
+#### TREXEL
+
+No, because they have a certain kind of hate. Like a hate where you're like, "I don't even want to look at it. I won't even--"
+
+#### DAVID
+
+So, they're in denial about the gambling?
+
+#### TREXEL
+
+##### [yelling]
+
+They're in denial about gambling! Because deep down, deep down, they want to gamble. They want to be on the blackjack table throwing those dice. And they're like, "That's a craps thing. You're on the blackjack table. Get out! Get out of the casino, Trexel! Get out from here!"
+
+#### DAVID
+
+Yes. Definitely *them* being in denial. So, is there anything else that they don't like? Anything that we can use to make this planet less attractive to the space whales?
+
+#### TREXEL
+
+Wat... Watercolors. Sort of like self-reflective poetry. Worlds with more than one moon. Don't know why. Never liked them. Uh, air conditioning. Not a fan. Think it's a waste of resources.
+
+#### DAVID
+
+Right. Well, obviously Trexel, these are all brilliant ideas. So, we should make it a pyramidal stadium [__TREXEL:__ Yes.] for gambling on sports and arts [__TREXEL:__ Yep.] and you can park your ship on one of the fifteen moons [__TREXEL:__ Yes, yes, yes.] which are lit up in different colors. [__TREXEL:__ Obviously.] Umm--
+
+#### TREXEL
+
+And the whole thing. Climate controlled to the very Nth degree.
+
+#### DAVID
+
+Exactly.
+
+#### TREXEL
+
+Ahh, what temperature do you want it?
+
+#### DAVID
+
+At any temperature you want.
+
+#### TREXEL
+
+And everybody has their own personal temperature gauge. Maybe, you go in, you get your own personal temperature gauge belt, you pop it on, it keeps you the temperature you need to be. Because obviously we want this to be an intergalactic attraction. People need to maybe be really, really cold because they're from an ice, an ice world. Or someone needs to be hot because they're from an actual inside a star or maybe the core of a planet. The core of many planets is hotter than you would think, David. I know because, if you just keep digging, eventually, your shovel melts, and then *you* look like the idiot.
+
+##### [pause]
+
+#### DAVID
+
+##### [deep breath]
+
+Yes. And also, the fact that you've got a lot of different species there from across the galaxy means that the space whales are less likely to destroy your planet because they're more likely to cause an international incident.
+
+#### TREXEL
+
+Yes! It's like a safe zone. Fill it with loads of nations, it's really difficult to decide who you want to kill.
+
+#### IMOGEN [beep]
+
+Meat shields detected... Carry on.
+
+#### DAVID
+
+Sort of a Demilitarized Planet.
+
+#### TREXEL
+
+Oh, yes. But then you've got to be careful--
+
+#### DAVID
+
+Shut up, Trexel! Shut up! I've just realized!
+
+#### TREXEL
+
+What?
+
+#### DAVID
+
+A pyramid has *four* right angles. It's got a square at the bottom!
+
+#### TREXEL
+
+What?! What do you mean? Hang on. Look, hang on. I'm imagining a pyramid. It goes up. It's pointy at the top. None of them are right angles. And then there's a bit lower down. But it's on the floor so who cares!
+
+#### DAVID
+
+But what is the floor?
+
+#### TREXEL
+
+Of the pyramid?
+
+#### DAVID
+
+Walk to the core--
+
+#### TREXEL
+
+*It's a square, David*!
+
+#### DAVID
+
+Yes! Yes!
+
+#### TREXEL
+
+It's a square! There's four right angles there.
+
+#### DAVID
+
+Exactly. Look, you've worked out the shape. Well done.
+
+#### IMOGEN [beep]
+
+Shape sass detected. Security alerted.
+
+#### TREXEL
+
+Okay, okay, okay. Tell you what. Make each one of those ninety-one degrees. Fine. Sorted. Each, each of the corners, ninety-one degrees. Absolutely fine. Absolutely sorted.
+
+#### DAVID
+
+I do feel like that's still going to *look* like a right angle.
+
+#### TREXEL
+
+No.
+
+#### DAVID
+
+And also cause a weird sort of dip in the floor.
+
+#### TREXEL
+
+No. No no no. Alright, fair enough. Ninety-four degrees. It's a little bit more obvious. It looks like a *choice*. If it's sort of a bit wrong, you're like, "Uhh, what happened there?" If it's *really* wrong, tell you what. Make it a hundred degrees. Each corner is a hundred degrees and then that, that *can't* be an accident. That's a design *choice*.
+
+##### [...]
+
+#### DAVID
+
+Well, I'm pre--
+
+#### TREXEL
+
+Big, weird bendy walls. None of the actual corners line up. It's *impossible* to buy furnishings. You buy a sofa. You push it up against the wall. There's a weird bow behind it. And also, it wobbles on the third leg. And you-- you pack a napkin under there and you're like, "Well, I suppose that works for now." But the napkin gets stamped down by the *fat* *arses*
+
+sitting on the sofa, hour after hour, looking at sports on-- on a holovid. And
+
+they're gambling. And there-- there's sweat. And the sweat's getting into all of the furnishings. And they've become horrible and sort of fetid. And then you-- and then you realized one day you've been working for *thirty years* as a pit boss in an intergalactic casino full of *idiots*... So, we'll make those corners that shape.
+
+#### DAVID
+
+Yes. Well, I'm pretty sure it's mathematically impossible but, no matter. I'll work it out later.
+
+#### TREXEL
+
+What do you mean? Sorry, what now?
+
+#### DAVID
+
+Sorry. What? I mean I'll work it out later as in this sentence. Trexel, it's mathematically impossible and we shouldn't do that.
+
+#### TREXEL
+
+Okay. Okay. I hear what you say. What I hear is defeat. That's a defeatist attitude. Maths... is... our... minion.
+
+#### DAVID
+
+Could we just make it a cone?
+
+#### TREXEL
+
+Let's make it a cone. Make it a big circular bottom.
+
+#### DAVID
+
+Yeah.
+
+#### TREXEL
+
+You have to deal with it.
+
+#### DAVID
+
+Yeah.
+
+#### TREXEL
+
+Thank goodness because I must say, I-- I was talking a big game about maths there. Maths kicks my butt every time. Nine-- nine times out of ten they're like, "Math doesn't work." And I'm like, "Sort it out." And they're like, "No, no, that's not how maths work. Your planet's exploded." So, let's make it a cone.
+
+#### DAVID
+
+Okay. Right. Good and--
+
+#### TREXEL
+
+And also, cone sort of sounds like clone. I don't think that's anything, but I think we should note it.
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+It's not important. What else do we need to do?
+
+#### DAVID
+
+Where does Bellonda Ghodrak come from? And I sure hope they like gambling.
+
+#### TREXEL
+
+Oh, well, I-- you know, I don't know a lot about Bellonda Ghodrak. Let-- let's just, a, look, uh, look them up. Okay.
+
+#### DAVID
+
+Okay. Alright. So here we go.
+
+#### IMOGEN [beep]
+
+Client fact file: Bellonda Ghodrak.
+
+#### DAVID
+
+Poet laureate--
+
+#### TREXEL
+
+Right.
+
+#### DAVID
+
+--for the arboreal world of 15-βθ (Beta Theta).
+
+#### TREXEL
+
+Okay. Okay. This, this *may* be a problem, David.
+
+#### DAVID
+
+Hmm.
+
+#### TREXEL
+
+Um, that arboreal world? It's sort of a spiritual retreat planet.
+
+#### DAVID
+
+Well, it's not anymore. It's been blown up,
+
+#### TREXEL
+
+Alright, Negative Nigel. Yes, it *has* been blown up. But before it was blown up, it was a retreat planet for the Spiritually Cleansed.
+
+#### DAVID
+
+Yeah.
+
+#### TREXEL
+
+##### [screeches]
+
+Not a big fan of gambling at the Spiritually Cleansed. They're normally like, "Repent, Trexel Geistman! Repent!" And I'm like, "No, thank you." And I'm trying to close the door but their-- their foot's in the door. And I'm slamming it. And their foot's bleeding now. And then there's a-- there's a bit of a foot in my house! What am I going to do with it then? What do I need-- I'm using it as a paperweight but it's starting to smell?
+
+#### DAVID
+
+Right. Well, I don't care *where* the foot is right now. We do not have time for that. I mean it explains the sort of-- the organic nature of the planet explains the dislike for right angles. Like, when do you see a right angle in the natural world?
+
+#### TREXEL
+
+Exactly.
+
+#### DAVID
+
+Except for the cube trees but-- They're probably not even there! Actually, yeah. No, don't worry about it. We'll stick a bunch of trees on it. That'll be fine.
+
+#### TREXEL
+
+Exactly!
+
+#### DAVID
+
+Well, you know what, we'll let the* Build Team* handle it.
+
+#### TREXEL
+
+No. Da-- David. David, let's, let's not be... just, you know, blasé about this. Let's not go back to our old ways and just let the Build Team sort it out.
+
+#### DAVID
+
+No, Trexel--
+
+#### TREXEL
+
+You had the, you had the idea there, David. You had the idea.
+
+#### DAVID
+
+Oh, stick trees on it?
+
+#### TREXEL
+
+Stick trees on it.
+
+#### DAVID
+
+Fine.
+
+#### TREXEL
+
+You put a, you put a croupiers table in there, put a tree in front of it. And you put the tree on like a little-- like a little track. Like a circular track that goes 'round the table. And then you put little sensors in it and then all of the actual-- the ultra-followers and-- and the Spiritually Cleansed, they've got little trackers on them. So, as they walk around, the trees trundle along, blocking their view, and allowing the actual gamblers to just get on with the act of gambling.
+
+#### DAVID
+
+So, what you're saying is we, we've built a planet for Bellonda
+
+Ghodrak--
+
+#### TREXEL
+
+Yes. That is secretly also an intergalactic casino that we're funneling the profits from and everything is hidden by automatically adjusting trees that block their view of it.
+
+#### IMOGEN [beep]
+
+Impractical fraud detected... Do better.
+
+#### DAVID
+
+You know what, Trexel. What a good idea.
+
+#### TREXEL
+
+What a good idea!
+
+#### DAVID
+
+I'm sure... the Build Team will love it.
+
+#### TREXEL
+
+I'm sure *I* love it and therefore *everyone* will love it because I am *absolutely* wonderful.
+
+#### IMOGEN
+
+##### [activation sound]
+
+Would you like to submit?
+
+#### DAVID
+
+__[____crosstalk____]__ Right. Well, that's lucky because-- Oh! Boop! There it goes. Off it goes.
+
+##### [chime, pneumatic tube hissing]
+
+#### IMOGEN
+
+##### [clunk]
+
+Submitting!
+
+#### DAVID
+
+__[____crosstalk____]__ There it goes. Bye. Wheee! All the way through the tubes.
+
+#### TREXEL
+
+No. There was that noise again, David.
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+What is that?
+
+#### DAVID
+
+Uh, it's probably something in the vents.
+
+#### TREXEL
+
+Something in the vents?
+
+#### DAVID
+
+You probably knocked something when you were in the vent.
+
+#### TREXEL
+
+Oh. Maybe I've let out some sort of a vent crawler.
+
+#### DAVID
+
+Yes, a vent crawler. Definitely a vent crawler.
+
+#### TREXEL
+
+Ah, well, I'll pop in there and have a look around and see if I can find it. H-- help me up onto the table.
+
+#### DAVID
+
+Okay. Right. There we go.
+
+##### [Trexel struggles onto the table]
+
+#### TREXEL
+
+There we are.
+
+#### IMOGEN [beep]
+
+Vent unsealed.
+
+#### TREXEL [
+
+__crosstalk____]__ Okay, David. Well, I'll-- I'll see you tomorrow.
+
+##### [vent unsealing, mechanical whooshing]
+
+#### DAVID
+
+Yep.
+
+#### TREXEL
+
+__[____crosstalk____]__ Unless I get lost in the vent system. In which case-- Eh, I'll see you when I see you.
+
+#### DAVID
+
+__[____crosstalk____]__ No. I'll just, I'll just-- Just slide you in here. Bye, Trexel!
+
+#### TREXEL
+
+##### [echoing]
+
+Oh. Bye, David!
+
+#### DAVID
+
+Bye!
+
+##### [vent being sealed back up]
+
+#### DAVID
+
+Right. Just wait for him to go.
+
+##### [Trexel crawling through the vent]
+
+##### [Trexel screams]
+
+#### DAVID
+
+And *there's* the scream. Okay, we're fine.
+
+##### [show theme starts]
+
+#### IMOGEN
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Lowri Ann Davies with executive producer Alexander J. Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, and Trexel Geistman was played by Tim Meredith. The episode was edited by David Devereux and Alexander J Newall, with music by Samuel DF Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook or email us via mail@rustyquill.com. May the Board preserve and keep you.

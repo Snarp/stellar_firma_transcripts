@@ -1,0 +1,1673 @@
+---
+layout: post
+title: PERCY AND PERFIDIOUSNESS
+date: 
+categories: episode
+tags: 
+episode_number: '34'
+
+---
+
+# __EPISODE 34 - PERCY AND PERFIDIOUSNESS__
+
+## Transcribed 2/7/20 via stellarscripts on tumblr
+
+#### ALEX
+
+Hi everyone, Alex here. I'd just like to take a moment to thank some of our patrons: Link Sandblom, Sindre Sareide, Retro Seamstress, Nick Mikoleit, Tasha, Msharki3, Alex K., Breanne A., Ashley Cecere, Emilia Williamson, Catherine White, aimsme, Hannah LaPlante, Sea, Britt & Astrid, juicysushi, Ferynn, Dean Winchester, Jessica Wells, Molly W. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+#### TREXEL
+
+Special thanks to Cato AKA Cato. May your nom de plume make them nom de swoon.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+#### DAVID [hyperventilating]
+
+Right. Um... okay. Ethically dubious, morally wrong, but *not* killing David. Or standardizing David? I don't even know what Standards needs to do. I-I don't know what they do, do they just standardize things?
+
+##### [door swooshes open]
+
+#### TREXEL
+
+David!
+
+#### DAVID
+
+Am I-- Ah! Ooh!
+
+#### TREXEL
+
+##### [getting increasingly frantic]
+
+David David [__DAVID:__ Whuh. Uh.] David David David David David David.  David.
+
+#### DAVID
+
+Trexel Trexel Trexel Trexel Trexel Trexel Trexel--
+
+#### TREXEL
+
+David! *David!*
+
+#### DAVID
+
+*Trexel!*
+
+#### TREXEL
+
+David!
+
+#### DAVID
+
+Trexel!
+
+#### TREXEL [suddenly calm]
+
+Hello. How are you doing?
+
+#### DAVID [shakily]
+
+Uhh...
+
+#### TREXEL
+
+You look a little bit stressed, David.
+
+#### DAVID [nervously]
+
+Eeee. Eeee.
+
+#### TREXEL
+
+You did so *well* yesterday, David!
+
+#### DAVID
+
+Ah!
+
+#### TREXEL
+
+You did so well, I was proud of you in a way!
+
+#### DAVID
+
+G-g-oh, no!
+
+#### TREXEL
+
+As proud as somebody can be of a thing.
+
+#### DAVID
+
+##### [taking offence]
+
+Uhhh.. whuh... oh. Oh!
+
+#### TREXEL
+
+No! Sorry, I-- That was harsh.
+
+#### DAVID
+
+Yes!
+
+#### TREXEL
+
+You're a cherished thing, David.
+
+#### DAVID
+
+I, uh, that's, uh...
+
+#### TREXEL
+
+A thing I hold close to me, like a brooch given to me by a maiden aunt.
+
+#### DAVID [under his breath]
+
+Or Percy.
+
+#### TREXEL
+
+What? Who?! What's that?!
+
+#### DAVID
+
+What? Who?! No! Uh. Over there! Ah!
+
+#### TREXEL
+
+Oh! Th-There's something in the corner! [__DAVID:__ Oh, it's the--] I've got it! I've got--aw. It was a shadow.
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+But I nearly got it.
+
+#### DAVID
+
+Well I, yes, well, I thought it was...
+
+#### TREXEL
+
+But I've been thinking, David.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+##### [breathy chuckle]
+
+You, you've, you've done [__DAVID: [wistfully]__ Terrible things.] very well [__DAVID:__ Oh, yes.] over the past few sessions. You-You've really started to, to really grasp what it is to be... to be a salesperson, and I think I'm seeing --as much as I hate to say it, David--real improvement in your work. So... [__DAVID: [flatly]__ Right.] I suppose I... I should maybe be a little bit less...... harsh... with you.
+
+#### DAVID [hesitantly]
+
+Riiight?
+
+#### TREXEL [screaming angrily]
+
+##### [suddenly calm]
+
+Now, I don't want you to think that means I'm going soft, David. I'm not! I'm *not* going soft! In fact, I'm going to be like sandpaper, grinding away at your face!  But, you must remember, that it's because I care...
+
+#### DAVID [flatly]
+
+Caring sandpaper.
+
+#### TREXEL [screaming again]
+
+##### [suddenly calm]
+
+...about making myself the most glorious consultant ever to have lived!  But you have to remember that behind that, David, [__DAVID:__ Yes.] is ambition.
+
+#### DAVID
+
+Mm-hmm.
+
+#### TREXEL
+
+And behind that, David, [__DAVID:__ Mm-hmm.] is fear... [__DAVID:__ Mm-hmm.] of... [__DAVID:__ Mm-hmm.] the past.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+But in front of that... [__DAVID:__ Is...] is a big pile of velvet!
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+That I sleep on at night.
+
+#### DAVID
+
+Okay. You sleep on top of... your... fears?
+
+#### TREXEL
+
+I *had* a bed, and I set it a little bit on fire... because there was a flood. So, [__DAVID:__ No, wait. No, hang on, what?] I just, I just found some curtains, and they were velvety, and I tore them down, and I sleep on those.
+
+#### DAVID
+
+Right. And the... the bed is your fear?
+
+#### TREXEL
+
+Hm?
+
+#### DAVID
+
+The-- the bed is your fear?
+
+#### TREXEL
+
+There's no metaphor here, David!
+
+#### DAVID
+
+You've just lit--
+
+#### TREXEL
+
+Just a big bed made of curtains.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+Because I burnt the flooded older one.
+
+#### DAVID
+
+Yes. I'm... not... But it's wet... Whatever. Okay. Anyway, there is a brief to do.
+
+#### TREXEL
+
+There is!
+
+#### DAVID
+
+So should we do a brief? Wh-what's the lesson, Trexel? Wh-Wh-What *wonderful* thing are you going to teach me today?
+
+#### TREXEL
+
+Well, David. This is one of the more... extreme lessons that you have to...
+
+#### DAVID
+
+Really? This is the *more* extreme one?
+
+#### TREXEL
+
+This is a more extreme lesson, David, because this is about... emotional leverage.
+
+#### DAVID
+
+Aren't they *all* about emotional leverage?
+
+#### TREXEL
+
+In a way, but this one is one-hundred percent about emotional leverage.
+
+#### DAVID
+
+And yesterday's lesson *wasn't* one-hundred percent?
+
+#### TREXEL
+
+Oh! No! Yesterday's lesson was about confidence! About how you... I... are... am...
+
+#### DAVID
+
+Yes, "am."
+
+#### TREXEL
+
+...never ever wrong.
+
+#### DAVID [overlapping trexel]
+
+Never awr--ever wrong, right.
+
+#### TREXEL
+
+And you dealt with that beautifully!
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+And that person crumbled like a duck!
+
+#### DAVID
+
+Okay, so, what is this "a hundred percent emotional leverage" extreme lesson that we're going to be learning today?
+
+#### TREXEL
+
+When you are dealing with a client that has not been tractable with any of the other methods we've learned so far...
+
+#### DAVID
+
+Right?
+
+#### TREXEL
+
+...you tell them that you're dying and that this is your dying wish. It works every time, David. Nobody can deny a dying person! They're *dying!* ...... Yeah?!
+
+#### DAVID
+
+Okay, so, we're both going to be dying?
+
+#### TREXEL
+
+We're *all* dying! Now, [__DAVID:__ That's true.] the beautiful thing about this, David. The beautiful thing--because you got really hung up on the ethics last time--the beautiful thing is: we* are* all dying!
+
+#### DAVID
+
+So it's *technically* true.
+
+#### TREXEL
+
+--*technically* true. And a technical truth is the best kind of truth! Because it has all the legal definition of truth with none of the moral complications of truth!
+
+#### DAVID
+
+Okay. Right. Yes, fine. Yes, this is our dying wish.
+
+#### TREXEL
+
+So, we're going to find ways in which we can apply that lesson [__DAVID:__ Okay.] to this particular issue.
+
+#### DAVID
+
+Okay, well, let's, let's check the brief and *hopefully* it's got some really strong death themes, eh? Maybe they want a death planet for their death dogs where they put all their dead pets.
+
+#### TREXEL
+
+David, just because I think you're doing well doesn't mean I'm going to accept this level of *sass*.
+
+#### DAVID
+
+Okay, fine.
+
+#### TREXEL
+
+I'm still in charge!
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+##### [yelling]
+
+I'm still in-- I'm still a charge boy!
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+I'm fully charged up like a battery of confidence!
+
+#### DAVID
+
+##### [under breath]
+
+##### [normal]
+
+From a David.  Right. Anyway, shall I get the brief out?
+
+#### TREXEL
+
+Go on.
+
+#### DAVID
+
+Master. Sir.
+
+#### TREXEL
+
+Servant.
+
+#### DAVID
+
+Ungh!
+
+#### TREXEL
+
+Gooh!
+
+#### DAVID
+
+Ungh!
+
+#### TREXEL
+
+Ungh!
+
+#### DAVID
+
+Ungh!
+
+#### TREXEL
+
+You're gonna crumble like a duck.
+
+#### DAVID
+
+Wah. Wah. Wah. What, no. No! I'm not a duck! You're a duck. No, I'm reading the brief.
+
+#### TREXEL
+
+Am I a duck?
+
+#### DAVID
+
+No! You're not a duck!
+
+#### TREXEL
+
+I'm a duck.
+
+#### DAVID
+
+You're a consultant called Trexel Geistman.
+
+#### TREXEL
+
+I must eat bread!
+
+#### DAVID
+
+There isn't any bread!
+
+#### TREXEL
+
+Oh, okay.
+
+#### DAVID
+
+Right. Well, look, brief time now, okay?
+
+#### TREXEL
+
+Yep.
+
+#### IMOGEN
+
+##### [beep]
+
+Initiating.
+
+#### DAVID
+
+Right so, who are you? Stefan--
+
+#### TREXEL
+
+I'm Trexel Geistman.
+
+#### DAVID
+
+No, okay so--
+
+#### TREXEL
+
+Sorry.
+
+#### IMOGEN
+
+##### [beep]
+
+Bickering tangents reaching critical levels. Security alerted.
+
+#### DAVID
+
+Speaking as, as the brief--
+
+#### TREXEL
+
+##### [laughs]
+
+Oh, sorry.
+
+#### DAVID
+
+--asking the client--
+
+#### TREXEL
+
+##### [laughing]
+
+What an amusing mix up. *I'm* Trexel Geistman.
+
+#### DAVID
+
+No, who are--
+
+#### TREXEL
+
+##### [laughing]
+
+Oh, sorry. No, sorry. I see what's happened. There's been a, a silly, a silly mix up.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+A silly mix up.
+
+#### DAVID
+
+Yes, so, so--
+
+#### TREXEL
+
+I'm Trexel Geistman. How are you?
+
+#### DAVID
+
+Um, I'm David 7 and I'm fine, and I'm reading the brief?
+
+#### TREXEL
+
+Oh, excellent!
+
+#### DAVID
+
+Okay, so--
+
+#### TREXEL
+
+Because I'm Trexel Geistman.
+
+#### DAVID
+
+##### [quickly]
+
+Okay... So the brief says... who are you?  And the brief answers ba--
+
+#### TREXEL
+
+I-- I am--
+
+#### DAVID
+
+And the brief answers back...
+
+#### TREXEL
+
+Right. You interrupted me. I don't like that.
+
+#### DAVID
+
+Okay. So, I'm gonna start again.
+
+#### TREXEL
+
+Okay. Start again. Start again. Start again.
+
+#### DAVID
+
+So, the brief says the word--
+
+#### TREXEL
+
+I'm Trexel Geistman.
+
+#### DAVID
+
+No, so the brief says the words... who... Right?
+
+#### TREXEL
+
+Yeah.
+
+#### DAVID
+
+Not, not addressed to us.
+
+#### TREXEL
+
+Nope.
+
+#### DAVID
+
+It's addressed to the client.
+
+#### TREXEL
+
+Third person.
+
+#### DAVID
+
+...are...
+
+#### TREXEL
+
+Yep.
+
+#### DAVID
+
+Yes....
+
+#### TREXEL
+
+...Trexel Geistman.
+
+#### DAVID
+
+No, so... So, the brief asks--
+
+#### TREXEL
+
+Mm-hmm.
+
+#### DAVID
+
+--these three words--
+
+#### TREXEL
+
+Okay.
+
+#### DAVID
+
+--in no particular order--
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+...are...
+
+#### TREXEL
+
+Yep.
+
+#### DAVID
+
+...you...
+
+#### TREXEL
+
+Okay.
+
+#### DAVID
+
+...who?
+
+#### TREXEL
+
+No, I'm Trexel Geistman.
+
+#### DAVID
+
+##### [stammers]
+
+Ri-- Wait.  So the-- It's Stefan the Mantis Shrimp.
+
+#### TREXEL
+
+Oh, okay. I-- Yes. Okay, fine.
+
+#### DAVID
+
+Right. A-a-and their preferred pronouns [__TREXEL:__ Mm-hmm.] are he/him.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+Stefan the Mantis Shrimp's pronouns are he/him.
+
+#### TREXEL
+
+##### [pause]
+
+It's okay. You can, you can just read the brief, David. You don't need to be so careful about all this.  You're in good hands 'cause I'm Trexel Geistman.
+
+#### DAVID
+
+Right, so, so, so why do you want the planet?
+
+#### TREXEL
+
+##### [interrupts]
+
+I don't want a planet built. I-- It's not my request.
+
+##### [long beat]
+
+#### DAVID
+
+Uh... S-s... No, so...
+
+#### IMOGEN
+
+##### [beep]
+
+To be fair, it is unlikely to make a difference.
+
+#### DAVID
+
+So why does *he* want the planet built?
+
+#### TREXEL
+
+##### [laughing]
+
+Oh, sorry.  Sorry, there seems to have been a, a s-- Oh. D-David, you'll, you'll not believe the mix up that's happened here.
+
+#### DAVID
+
+Do you know, I think--
+
+#### TREXEL
+
+I'm Trexel Geistman.
+
+#### DAVID
+
+##### [sighs]
+
+Right, no, yes. Okay, so, so, so "why does Stefan the Mantis Shrimp want a planet built?" Right, so Stefan the Mantis Shrimp, *Stefan the Mantis Shrimp*--
+
+#### TREXEL
+
+Stefan the Mantis--
+
+#### DAVID
+
+--The Mantis Shrimp called Stefan--
+
+#### TREXEL
+
+There's a Mantis Shrimp called Stefan?
+
+#### DAVID
+
+--wants to celebrate his 10,000th birthday.
+
+#### TREXEL
+
+That's so old!
+
+#### DAVID
+
+He's now the oldest Mantis Shrimp in the universe!
+
+#### TREXEL
+
+That's the oldest!
+
+#### DAVID
+
+Huzzah!
+
+#### TREXEL
+
+Huzzah!
+
+#### DAVID
+
+It says huzzah!
+
+#### TREXEL
+
+Huzzaaaah!
+
+#### DAVID
+
+He's quite a cheerful Mantis Shrimp.
+
+#### TREXEL
+
+Mantis Shrimps are, despite their violent demeanor, a Mantis Shrimp, one of the more cheerful beings you'll meet in the universe.
+
+#### DAVID
+
+H-huzzah, I suppose. So, Stefan the Mantis Shrimp's likes and dislikes.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+So likes: the ocean, [__TREXEL:__ Mm-hmm.] long walks along the beach at sunset, [__TREXEL:__ Mm-hmm.] stars, rainbows, colourful objects that also emit light arranged in logical order, soft sand to burrow into at the end of a long day. Right.
+
+#### TREXEL
+
+Okay.
+
+#### DAVID
+
+Dislikes: being exposed to the scrutiny of my peers--
+
+#### TREXEL
+
+Nobody likes that.
+
+#### DAVID
+
+Oh. Okay. Candles, barracudas, marine biologists, and grey.
+
+#### TREXEL
+
+Oo, grey. Okay. Okay. Okay.
+
+#### DAVID
+
+Okay. Okay. Okay.
+
+#### TREXEL
+
+Okay.
+
+#### DAVID
+
+Okay. So, "if you're an animal, what would you be?"
+
+#### TREXEL
+
+I'd be a Trexel Geistman galloping across the plains! Fear his claws!
+
+#### DAVID
+
+Uh...
+
+#### TREXEL
+
+I'm more of a scavenger, really, but I've got the claws.
+
+#### DAVID
+
+No, so *Stefan the Mantis Shrimp*, if Stefan the Mantis Shrimp were an animal, Stefan the Mantis Shrimp would be a... Mantis Shrimp.
+
+#### TREXEL
+
+Oh, that's, that's boring.
+
+#### DAVID
+
+Or a lion!
+
+#### TREXEL
+
+Oh, okay. Or a lion.
+
+#### DAVID
+
+They're very much the Mantis Shrimp of the land. Or we're the kings of the ocean. Whichever. [__TREXEL:__ Okay.] Right. Uh, so what is Stefan the Mantis Shrimp's greatest strength?
+
+#### TREXEL
+
+Punching at the speed of sound!
+
+#### DAVID
+
+Surprisingly, no.
+
+#### TREXEL
+
+Oh.
+
+#### DAVID
+
+"I can--"
+
+#### TREXEL
+
+I've always thought of that as a Mantis Shrimp's strongest power. That and its emotional distance!
+
+#### DAVID
+
+N-nope. Wrong again.
+
+#### TREXEL
+
+Oh.
+
+#### DAVID
+
+Well, not-- according to Stefan, "I can detect 12 different wavelengths of light unlike pathetic humans and other petty species"--this has got very rude, very quickly--
+
+#### TREXEL
+
+Very rude, very rude.
+
+#### DAVID
+
+--"which only see in 3 wavelengths of light, so I have access to all the Hidden Colours of the Universe" which I didn't know were a thing. But "Hidden", "Colours", and "Universe" were all capitalized so I'm assuming this is a thing that only Mantis Shrimps know--
+
+#### TREXEL
+
+The HCU!
+
+#### DAVID
+
+--and now I want to know, I want to know what the Hidden Colours of the Universe are!
+
+#### TREXEL
+
+We all want to know what the HCU is!
+
+#### DAVID
+
+I am bored! I am bored of only seeing in 3 wavelengths of light. Stefan is completely right. I wanna see in 12 wavelengths of light, and I want to see the Hidden Colours of the Universe. It's not fair!
+
+#### TREXEL
+
+It's not fair!
+
+#### DAVID
+
+It's not fair!
+
+#### TREXEL
+
+I want *x*-rays! I want x-*rays*!
+
+#### DAVID
+
+##### [sighs]
+
+Yes.  Anyway, let's find out Stefan's weakness so we can kill them and take their eye-- No, wait. Hang on a minute.
+
+#### TREXEL
+
+Woah. Wow, David. David.
+
+#### DAVID
+
+Sorry, I'm just gonna-- whoop.
+
+#### TREXEL
+
+No no no. You've become, you've become an ardent globe thief!
+
+#### DAVID
+
+##### [defensive]
+
+No. You're a... thief of..
+
+#### IMOGEN [beep]
+
+Visible wavelengths greed detected. Security alerted.
+
+#### TREXEL
+
+No no no no. I've, I've heard it come out now. All of a sudden, [__DAVID:__ No.] you are covetous of their wavelength-seeing globes.
+
+#### DAVID
+
+No, I'm not.
+
+#### TREXEL
+
+And I like this colour on you, David. [__DAVID:__ No.] Colour me violent.
+
+#### IMOGEN
+
+##### [beep]
+
+Caution: globe thievery will *not* be tolerated.
+
+#### DAVID
+
+##### [stammers]
+
+No, it's--  Moving swiftly on. What is your greatest weakness? "I'm really tasty served with a variety of sauces."
+
+#### TREXEL
+
+And that has served the Mantis Shrimp very poorly over the eons. So long lived. So violent and powerful, but yum.
+
+#### DAVID
+
+Hmm. So, we have a 10,000 year old [__TREXEL:__ Mm-hmm.] very happy, [__TREXEL:__ Yep.] very tasty [__TREXEL:__ Sure.] Mantis Shrimp that likes walking around in the ocean and burrowing into things at the end of a long day. And, um... and they can see very well in many different... Yes. So, so we're gonna tell them that this is their dying wish or...?
+
+#### TREXEL
+
+##### [laughing]
+
+No no no no. David, David, David, David, David, David, David, David. David, you *ignorant fool*.
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+It's *my* dying wish. "Hello, Stefan."
+
+#### DAVID
+
+Um...
+
+#### TREXEL
+
+Let's roleplay.
+
+#### DAVID
+
+Okay.
+
+#### IMOGEN [beep]
+
+Roleplay holovision initiated.
+
+##### [electronic powering on sound]
+
+#### DAVID
+
+I'm Stefan the Mantis Shrimp. Huzzah!
+
+#### TREXEL
+
+Hello, Stefan the Mantis Shrimp.
+
+#### DAVID
+
+Hello Trexel Geistman that I've only just met. Huzzah!
+
+#### TREXEL
+
+How are you?
+
+#### DAVID
+
+I'm great. I'm gonna--
+
+#### TREXEL
+
+Well, I just have to let you know that I'm dying.
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+And my dying wish is that you purchase *everything* from me.
+
+#### DAVID
+
+Everything?
+
+#### TREXEL
+
+Everything. Don't think about it. I'm dying, Stefan.
+
+#### DAVID
+
+Even your obvious toupee?
+
+#### TREXEL
+
+##### [coughs]
+
+Even the toupee, Stefan.
+
+#### DAVID
+
+Oh!
+
+#### TREXEL
+
+Pull it off my head.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Pull it off my dying head.
+
+#### DAVID
+
+Okay. Here I go, Stefan the Mantis Shrimp. Whoop!
+
+##### [toupee rips off]
+
+#### TREXEL
+
+Wh-what?! I didn't think my hair was a wig!
+
+#### DAVID
+
+I just thought that was a bad haircut!
+
+#### TREXEL
+
+So did I!
+
+#### DAVID
+
+Uh, have it back!
+
+#### TREXEL
+
+Put it back! Put it back!
+
+#### DAVID
+
+Have it back! Have it back!
+
+#### TREXEL
+
+##### [rapid breathing]
+
+I don't like learning things about myself in such an alarming way.
+
+#### DAVID
+
+Um--
+
+#### TREXEL
+
+I must have had hair at some point, and I must have replaced it with a wig at another point. But I have *no* memory of those two things converging.
+
+#### DAVID
+
+Uh, Stefan the Mantis Shrimp. Huzzah!
+
+#### TREXEL
+
+Ah, you see? So, even as a mantis shrimp--
+
+#### DAVID
+
+Oh no, I haven't bought anything from you yet. I've just nicked your wig.
+
+#### TREXEL
+
+That's true. Ok, uh-- Stefan.
+
+#### DAVID
+
+Yes. Huzzaaaaah!
+
+#### TREXEL
+
+I wish for you to transfer all your credits to me.
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+##### [coughs]
+
+But I'm dying, Stefan, and this is my dying wish. Would you deny me my dying wish?
+
+#### DAVID
+
+##### [Trexel coughs]
+
+Well, Trexel Geistman, I *do* like living,  but I've only just met you and still need to have things to live with myself.
+
+#### TREXEL
+
+##### [coughs]
+
+And you won't have time to know me, Stefan, because this  is my dying wish.
+
+#### DAVID
+
+Well, sucks to be you, nerd, because I'm seeing in 12 different wavelengths. I'm Stefan the Mantis Shrimp. Huzzah!
+
+#### TREXEL
+
+Aw, right. End, end roleplay. End roleplay.
+
+#### IMOGEN [beep]
+
+Roleplay holovision terminated.
+
+##### [electronic powering off sound]
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+##### [stammers]
+
+You were really cocky as that Mantis Shrimp. You  can't just tell me that my lessons don't work.
+
+#### DAVID
+
+Well, no, but... I mean, I'm being Stefan the Mantis Shrimp.
+
+#### TREXEL
+
+Oh, oh, I see. I see. Now all of a sudden you know so much about Stefan the Mantis Shrimp that, during a roleplay, Trexel Geistman's lessons don't work. Lesson six: emotional leverage, telling them that you're dying and this is your dying wish, doesn't work anymore because David 7's a convincing Mantis Shrimp.
+
+#### DAVID
+
+##### [stammers]
+
+Look. Okay. Okay.
+
+#### TREXEL
+
+##### [voice cracking]
+
+It *has* to work, David, because I thought of it!
+
+#### IMOGEN
+
+##### [beep]
+
+That is not a good way to judge things.
+
+#### DAVID
+
+No, but, look. Here's the thing. Here's the thing, okay? I was basically very method... and I was thinking, "what would Stefan the Mantis Shrimp think?" And I came in completely cold. I didn't know you. I don't know Trexel Geistman. I don't know anything about Trexel Geistman. He hasn't let me in. He's just walked through a door, told me he's dying, and told me to give him all my money.
+
+#### TREXEL
+
+##### [stammers]
+
+Well, I, I suppose that's a good point,  You need, you need to have-- you need to dig a hole in order to put the posts and pegs down [__DAVID:__ Yes.] in order to gain the fulcrum on which the emotional leverage will sit.
+
+#### DAVID
+
+Yes. You can't just come in completely cold. It, it slid off me like water off of a quacking duck.
+
+#### TREXEL
+
+Not a crumbling duck.
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+A happy, quacking duck.
+
+#### DAVID
+
+Yes, a very, a very *alive*, a very alive 10,000-year-old quacking duck that's the oldest duck in the universe. Huzzah.
+
+#### IMOGEN
+
+##### [beep]
+
+Beware the eternal duck. Their ancient wisdom is a ploy for bread.
+
+#### TREXEL
+
+Okay, well let's... let's run it again and I'll... I'll open up and we'll, we'll see.
+
+#### DAVID
+
+Okay. Right.
+
+#### IMOGEN [beep]
+
+Roleplay holovision initiated.
+
+##### [electronic powering on sound]
+
+#### DAVID
+
+I'm Stefan the Mantis Shrimp. Huzzaaaaaah!
+
+#### TREXEL
+
+##### [somber]
+
+Hello, Stefan. How are you?
+
+#### DAVID
+
+Hello, Trexel Geistman. I'd like to purchase a planet, please.
+
+#### TREXEL
+
+Before you do, Stefan, I'd like to tell you a story.
+
+#### DAVID
+
+Oh, would you?
+
+#### TREXEL
+
+It's a story about a young boy.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+Barely... barely out of the nursery.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+His parents, powerful people. Powerful, powerful people but distant people. [__DAVID:__ Mm-hmm.] They've got busy jobs. They're busy people. They can't be expected to be to take care of a one year old! Screaming and, and defecating. So, they, they put him in, into care. Good, good people, I'm sure, but not... not them.
+
+#### DAVID
+
+Okay, uh--
+
+#### TREXEL
+
+##### [stammers]
+
+But he meets someone. He meets someone one day.  I suppose you'd call them a, a clone. He's still young now, of course, you understand, but, but he meets a clone and that clone becomes, becomes his friend. The clone's only there to take care of him. It's a functional clone but, [__DAVID:__ Um...] but the young boy sees something in that clone. A... a friendship, a camaraderie. In, in many ways they're both in the same situation. Coming from different angles, yes, but, but the same nevertheless. Both trapped by circumstance. Both limited and underappreciated. [__DAVID:__ Wait, Trexel. Wait.] And then one time, one time... his parents come home early, and they see him talking and laughing with a clone. A clone! And that's not *right!* [__DAVID:__ IMOGEN, stop the roleplay.] That's below the station of a Geistman! [__DAVID:__ IMOGEN, stop the roleplay!] "Take the clone away! Take them away and stick the boy in school!"
+
+#### DAVID
+
+##### [background]
+
+IMOGEN!
+
+#### IMOGEN
+
+##### [background]
+
+Roleplay holovision terminated.
+
+__[electronic powering off sound____]__
+
+#### TREXEL
+
+##### [shaky breath]
+
+"So he can learn to be proper."  And so that boy closed up. So Stefan, do you want to buy a planet?!
+
+#### DAVID
+
+Uhhh... I--
+
+#### TREXEL
+
+##### [thump]
+
+Because I'm dying!  And this is my dying wish.
+
+#### DAVID
+
+##### [Trexel starts crying]
+
+So, um, Trexel, I just-- I did stop the roleplay because  you've fallen off your chair. And, um--
+
+#### TREXEL
+
+##### [quiet]
+
+Are you buying from me?
+
+#### DAVID
+
+No, wait, hang-- now, hang on a minute, I've stopped the--
+
+#### TREXEL
+
+##### [yells]
+
+Are you buying from me, David?!
+
+#### DAVID
+
+What? No, I'm not buying anything from you.
+
+#### TREXEL
+
+Buy from me, please!
+
+#### DAVID
+
+Tr-Trexel.
+
+#### TREXEL
+
+Please buy something from me, David.
+
+#### DAVID
+
+Trexel.
+
+#### TREXEL
+
+Buy my sh--
+
+#### DAVID
+
+Stop grabbing at me!
+
+#### TREXEL
+
+Buy my things!
+
+#### DAVID
+
+Trexel, I have-- you don't have anything I want! I don't have any money! I'm a clone!
+
+#### TREXEL
+
+##### [crying]
+
+##### [sobbing]
+
+You're a clone.  Just like they were.
+
+#### DAVID
+
+Like who was?
+
+#### TREXEL
+
+##### [sobs]
+
+PERCY!
+
+#### DAVID
+
+What, your graph friend?
+
+#### TREXEL
+
+##### [sobs continue]
+
+No, the-- Percy the clone.
+
+#### DAVID
+
+Did you name-- Did you have a clone when you were younger?
+
+#### TREXEL
+
+##### [quietly]
+
+Yes.
+
+#### DAVID
+
+And it got taken away?
+
+#### TREXEL
+
+Yes...
+
+#### DAVID
+
+And recycled?
+
+#### TREXEL
+
+I don't know.
+
+#### DAVID
+
+So, why are you so careless with us now?!
+
+#### TREXEL
+
+I got too close. I got too involved, so I, I just-- I just thought, "well, maybe if I don't care, then it won't hurt."
+
+#### DAVID
+
+Won't hurt *you*.
+
+#### TREXEL
+
+Well, it didn't help Percy, did it?
+
+#### DAVID
+
+##### [stammers]
+
+Your parents did--
+
+#### TREXEL
+
+He wasn't "up to standards".
+
+#### DAVID
+
+Right, so your parents took away your childhood friend and so you've decided to take it out on every single other clone you've ever met.
+
+#### TREXEL
+
+You've about got it there, David.
+
+#### DAVID
+
+Despite the fact that they *die* when you do this!
+
+#### IMOGEN
+
+##### [beep]
+
+Oh, snap.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+So, what you're telling me is that your behavior towards clones is not just ignorance, but it's on purpose! You're telling me that everything you've done to get clones recycled has been on purpose and knowing! What you're telling me is that you've basically murdered--
+
+#### TREXEL
+
+Woah.
+
+#### DAVID
+
+About how many clones have you murdered, Trexel?!
+
+#### TREXEL
+
+Hey, now.
+
+#### DAVID
+
+How many clones have you murdered because you lost a friend when you were a "poor, little child" [__TREXEL:__ This--] with your "poor, little big house" [__TREXEL:__ Wh--] and your "poor, little rich parents", eh?
+
+#### TREXEL
+
+It's willful negligence at worst!
+
+#### DAVID
+
+Your parents or you?
+
+#### TREXEL
+
+Both of them!
+
+#### DAVID
+
+Right, do you like your parents?
+
+#### TREXEL
+
+No!
+
+#### DAVID
+
+Right, well, I don't like you!
+
+#### TREXEL
+
+Good!
+
+#### DAVID
+
+Fine!
+
+#### TREXEL
+
+Good!
+
+#### DAVID
+
+Still continuing to be fine!
+
+#### TREXEL
+
+I'm Trexel Geistman.
+
+#### DAVID
+
+I'm David 7. What's your point?!
+
+#### TREXEL
+
+I don't know!
+
+#### DAVID
+
+Right.
+
+#### IMOGEN
+
+##### [beep]
+
+This took a real turn.
+
+#### TREXEL
+
+But... we have to get through this, David, because... we're running out of time, so.
+
+#### DAVID
+
+Well, I'm getting through everything all the time! So, this is basically fine. This is basically par for the course, Trexel!
+
+#### TREXEL
+
+Fine. Fine. Okay. Fine. Fine.
+
+#### DAVID
+
+##### [three loud knocks]
+
+But yeah, sure, use your sad story on Stefan the Mantis Shrimp, huzzah!  Okay, and we'll see how much Stefan the Mantis Shrimp--
+
+__DAVID and TREXEL:__ Huzzah!
+
+#### DAVID
+
+--likes it. Right. We're gonna go in there and you're gonna tell your *stupid* dying story about your *stupid* clone and your *stupid* heartache... Honestly, who do you think you are?
+
+#### TREXEL
+
+Oh, I'm Trexel Geistman.
+
+#### DAVID
+
+##### [large door opens, mantis shrimp sounds] [from meeting room]
+
+Urgh! No! Right, we're going now.  Right. Hello, Stefan the Mantis Shrimp. I'm Trexel Geist-- I'm David 7!
+
+##### [show theme starts]
+
+#### TIM
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Katie Seaton with executive producer Alexander J. Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, Trexel Geistman was played by Tim Meredith. This episode was edited by Maddy Searle, with music by Samuel DF Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord server, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook or email us via mail@rustyquill.com. May the Board preserve and keep you.

@@ -1,0 +1,1343 @@
+---
+layout: post
+title: MOISTURISER AND MEASURES
+date: 
+categories: episode
+tags: 
+episode_number: '15'
+
+---
+
+# __EPISODE 15 - MOISTURISER AND MEASURES__
+
+## Transcribed 11/25/19 via stellarscripts on tumblr
+
+#### ALEX
+
+Hi everyone, Alex here. I'd just like to take a moment to thank some of our patrons: Lucy McCully, Kelly Lux Callahan, Jeffery Sumler, Melissa Verble, Greg Lange, Kelsey P, Mobius, Pettycoated Swashbuckler, Christopher Pajo, ASmith. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+##### [approaching footsteps]
+
+#### DAVID [frustrated noise]
+
+Still not here... three! *Three* reviews in a row! Three! Just... what, what is he doing?!
+
+##### [door swooshes open] [door swooshes closed]
+
+#### TREXEL [audibly sick]
+
+*David...*
+
+#### DAVID
+
+Oh! Oh!
+
+#### TREXEL
+
+*David, help me.*
+
+#### IMOGEN [beep]
+
+Bulbous consultant detected!
+
+#### DAVID
+
+Uh-- oh, *no,* you are bulbous!
+
+#### TREXEL
+
+*David, please*.
+
+#### IMOGEN [beep]
+
+Access granted.
+
+#### DAVID
+
+Why are you so bulbous?!
+
+##### [bwoop of lights turning on]
+
+#### TREXEL
+
+*David, I have been drinking moisturiser for the entirety of the time since I was last here. I haven't let any moisture out of my body in about 16 hours, David, and it hurts.*
+
+#### DAVID [nauseous]
+
+Oh...
+
+##### [sobbing]
+
+__*TREXEL:* __*It hurts, David.*
+
+#### DAVID  [crosstalk]
+
+Umm...
+
+#### TREXEL
+
+*David, you have to squeeze me. Ohh, David, you have to squeeze it out of me.*
+
+#### IMOGEN [crosstalk] [beep]
+
+Please drain your consultant!
+
+#### DAVID
+
+Um, okay--
+
+#### TREXEL
+
+*David, grab hold of me.* [__DAVID:__ Right, yes.] *Grab hold of me, David, and--*
+
+#### IMOGEN  [crosstalk] [beep]
+
+Line manager arriving!
+
+#### HARTRO  [crosstalk] [cheerfully]
+
+Oh, hello! I-- *oh.* What's... going on here??
+
+#### TREXEL
+
+*Hartro, I can explain. I can explain. I was supposed to be on time. I learned. I learned my lesson, I-- I promise--*
+
+#### HARTRO
+
+Why do you look so... spherical?
+
+#### TREXEL
+
+*I've drank lots of moisturiser and I think it's caught up with me...*
+
+#### HARTO  [crosstalk]
+
+Oh, of course you have... ugh.
+
+#### TREXEL
+
+*David... David, squeeze me...*
+
+#### DAVID [crosstalk]
+
+Right. Okay. Three...
+
+#### HARTRO
+
+Wait, wait, wait. Let me get behind the chair.
+
+#### DAVID
+
+Three... two... one...
+
+##### [David and Trexel strain as they squeeze out the moisturiser. It's gross.]
+
+#### HARTRO
+
+Ohh, it's disgusting!
+
+##### [loud splat as moisturiser is expunged]
+
+#### TREXEL [satisfied]
+
+Oh... that's nice...
+
+#### DAVID [traumatized noises]
+
+#### HARTRO
+
+Oh, Trexel, what a horrible way to start things. That is *disgusting.*
+
+##### [David whoops as he slips and falls on moisturiser, continues to make traumatised noises]
+
+#### TREXEL
+
+Oh, he's fallen. Ah... oh, that's wonderful. Oh, I'm so flappy now! Look at all my excess skin.
+
+#### HARTRO
+
+What?! What on earth has made you drink moisturiser, Trexel?!
+
+#### TREXEL
+
+I... picked up a bit of a habit, I have to admit. I was getting some for David-- It's not important.
+
+#### HARTRO
+
+Oh my God, you'd be addicted to addiction if you could!
+
+#### TREXEL
+
+I am! I am!
+
+#### DAVID [shakily]
+
+I'm so gooey again... [__TREXEL:__ So gooey.] Like I've just been born.
+
+#### TREXEL
+
+Ah, it must be nice for you, then! Remember being born?
+
+#### DAVID
+
+It was very, yes, recent.
+
+#### TREXEL
+
+Lot's of fun. Lot's of fun.
+
+#### HARTRO
+
+Well, guess what? I'm not here to watch moisturiser coming out of a body. I'm-- We're here to do a review.
+
+#### TREXEL
+
+Yes, I'm sorry.
+
+#### HARTRO
+
+##### [sighs]
+
+##### [slippery sounds]
+
+I need to sit. David-- oh, you've fallen off your chair. I'm sitting here.  Right. Two things I'm upset about that we need to discuss before I can even begin to review your... planet.  *Urghh.* Right, one. Last weekend. Ah! You were supposed to be somewhere. Yes, in fact-- oh, I remember! You *killed* several parents and created orphans. [__TREXEL:__ Orphans...] Oh, by dumping lava all over their families. [__TREXEL:__ Yes, yes.] Do you remember now?
+
+#### TREXEL
+
+That is coming back to me, yes.
+
+#### HARTRO
+
+And I thought, oh, wouldn't it be nice to give you a chance to go and entertain the orphans in a way to, you know, make good on the horribleness that you've done.
+
+#### TREXEL
+
+Yes, in the marmalade cresh, if I remember correctly. [__HARTRO:__ Yes.] I... *did* forget. [__HARTRO:__ Yes.] I did-- I *did* forget. I went into work--
+
+#### HARTRO
+
+Yes. You sure you didn't try to just get away?
+
+#### TREXEL
+
+Well-- you know what? Hands up in the air? That's possible. But I *did* go into a vent, and then I immediately forgot why I'd gone in there, and then by the time I'd realized I didn't know why I was supposed to be in there, I tried to get back and I was lost, and it felt like things were moving? And then it got really hot, and then really cold--
+
+#### HARTRO [crosstalk]
+
+You're like a very, very sad cat, aren't you?
+
+#### TREXEL
+
+A-- a sad cat?
+
+#### HARTRO
+
+Yeah, you know, they always go into ducts and hide.
+
+#### TREXEL
+
+Yes, Hartro, I am in many ways like a sad cat.
+
+#### HARTRO
+
+##### [gleeful]
+
+Oh, yeah, and you got hot and you got cold. That might have had something to do with *me*. [__TREXEL:__ What d'you mean?] Hahaha. I thought, 'Oh, look at my tracker! Oh, look, Trexel's not where he's supposed to be!' And I noticed that you were in a duct. So I thought, I could just turn up the heat, just a *little* bit... [__TREXEL:__ Did... did you heat my duct?!] Just-- just turn-- turn the air-conditioning on... [__TREXEL:__ Chilled my duct?] I did.
+
+#### TREXEL
+
+Right.
+
+#### HARTRO
+
+Was it unpleasant?
+
+#### TREXEL
+
+It was very unpleasant.
+
+#### HARTRO ["Oh, you poor baby"]
+
+Ooh... *sorry*.
+
+#### TREXEL [crosstalk]
+
+I don't have much skin on my hands anymore. Although now, I've got so much *excess* skin from all the moisturising, I could probably fold some over. So, y'know. Comme ci, comme ça.
+
+#### HARTRO
+
+Well... that was very bad. But I feel you've paid your just desserts.
+
+#### TREXEL
+
+Paid in skin!
+
+#### HARTRO
+
+Yes. Ooh... sore. Right. And, oh-- problem number the two. You're late again.
+
+#### TREXEL
+
+Yes. [__HARTRO:__ A-*gain*.] But-- but it was *because* I was full of moisturiser, and stuck in a number of narrow hallways--
+
+#### HARTRO
+
+But *is* that my problem? [__TREXEL:__ Uhh--] I mean, *is* that something I need to know? Like, 'Oh, is Trexel *maybe* going to drink moisturiser today, and show up late? Ah!' No, that's not normal problems! The other design teams don't *do* this to me, Trexel!
+
+#### TREXEL
+
+They don't?
+
+#### HARTRO
+
+No! They show up! I review planets, it's a pleasant time! We eat cookies!
+
+#### TREXEL [genuine curiosity]
+
+There's cookies??
+
+#### HARTRO
+
+*Yes!* No cookies for you!
+
+#### TREXEL
+
+I want cookies--
+
+#### HARTRO
+
+In fact, the only thing that's going in your mouth is *David's foot*.
+
+#### DAVID AND TREXEL
+
+What?
+
+#### HARTRO
+
+Yes.
+
+#### DAVID
+
+Uhh.
+
+#### HARTRO
+
+David, strip your foot.
+
+#### DAVID [uncomfortable]
+
+Oh...
+
+#### TREXEL
+
+He's wearing a onesie!
+
+#### HARTRO
+
+*I* don't care!
+
+##### [sounds of effort as David attempts to take the (nonexistent) socks off his onesie, ripping]
+
+#### TREXEL
+
+Oh, he's torn it.
+
+#### HARTRO
+
+Just rip it. I don't care how he gets it off! Are you wearing socks, David?
+
+#### DAVID
+
+*No!* No! Of course not.
+
+#### TREXEL [hushed]
+
+Hartro, he doesn't like socks. Don't go into the--
+
+#### HARTRO
+
+So what, even if I say 'socks'?
+
+#### DAVID
+
+Ah!
+
+#### HARTRO
+
+Wh-- sock??
+
+#### DAVID [more agitatedly]
+
+Ah!!!
+
+#### HARTRO
+
+##### [David yelps]
+
+##### [to Trexel]
+
+##### [threatening]
+
+What's wrong with socks?! You are *so strange*, you two! Get your foot in his mouth.  And *you* need to tell me that you will never be late again. *And make me believe it.*
+
+#### DAVID
+
+Right, ahh... s-- sorry, Trexel.
+
+#### TREXEL
+
+I understand.
+
+#### HARTRO
+
+##### [whispers]
+
+Don't be *sorry*.  Or I'll say 'socks.'
+
+##### [muffled speech]
+
+#### TREXEL [muffled]
+
+*Oh, god-- what is the taste of your foot, David?!*
+
+#### HARTRO
+
+##### [David shoves foot in more and begins intermittently making grossed out sounds]
+
+David, I don't believe that you're actually trying to put it in. [__DAVID:__ Uh-- okay, sorry.] It's just kind of hanging around the lip area. It needs to be difficult for him to talk.
+
+#### TREXEL [approximate sound]
+
+*Oughhghhh*.
+
+#### HARTRO
+
+Now, Trexel.
+
+#### TREXEL [questioning noise]
+
+#### DAVID
+
+His tongue's so smooth...
+
+#### HARTRO
+
+What did you do.
+
+#### TREXEL [muffled]
+
+*I was late.*
+
+#### HARTRO
+
+##### [Trexel echoes]
+
+You've been late a hundred times. An even hundred. That's why today is so special.
+
+#### TREXEL [muffled]
+
+*I'm sorry... for being... late*.
+
+#### HARTRO
+
+He's sorry for being...
+
+#### TREXEL [more desperate]
+
+*For being late!!!*
+
+#### DAVID
+
+Eugh, he's trying to say late, I can feel that.
+
+#### HARTRO
+
+Can you feel the L? That'd be, like, a tongue-y... letter.
+
+#### TREXEL [starts talking again]
+
+#### HARTRO
+
+And?
+
+#### TREXEL [muffled]
+
+*And I'll never do it again.*
+
+#### DAVID
+
+It's like a fat slug stroking the bottom of my foot...
+
+#### HARTRO
+
+Okay, so...
+
+#### TREXEL[muffled]
+
+*I'll never be late again.*
+
+#### HARTRO
+
+Do you believe him?
+
+#### TREXEL [muffled]
+
+*Please, David, please-- nehh...*
+
+#### DAVID
+
+He's saying 'please' to me, and he's not done that before, so I think he does mean it.
+
+#### HARTRO
+
+All right, you can take it out.
+
+__[____slurping sound of David's foot being removed____]__
+
+#### TREXEL
+
+Auughhhh.
+
+#### HARTRO
+
+Trexel, I don't enjoy that. [__DAVID:__ Ooh, it's so smooth.] I'm very sorry that I had to do that, but you very much did it to yourself.
+
+#### TREXEL
+
+David... David, your foot tastes like week-old hot beef on a radiator.
+
+#### DAVID
+
+##### [Trexel coughs weakly]
+
+Um... thank you?
+
+#### HARTRO
+
+Right, onto the planets.
+
+#### IMOGEN [beep]
+
+Consultant design recommendation file!
+
+#### HARTRO
+
+##### [struggles to pronounce]
+
+Serafina Mouchet. Ah, that's labyrinths, and robot gondol-- golden-- gondil...
+
+#### TREXEL
+
+Oh, oh-- Hartro.
+
+#### DAVID [crosstalk]
+
+Right-- yes.
+
+#### HARTRO
+
+Yes.
+
+#### TREXEL
+
+Two, three, four...
+
+#### DAVID AND TREXEL
+
+♪ Golden robot gondoliers! ♫
+
+#### TREXEL
+
+One for you. And one for me!
+
+#### DAVID AND TREXEL
+
+♪ Golden robot gondoliers! ♫ [__HARTRO:__ Wha--]
+
+#### TREXEL
+
+Where are they?Who are we?
+
+#### DAVID AND TREXEL
+
+♪ Golden robot gondoliers! ♫ [__HARTRO:__ Okay, what are you doing?]
+
+#### HARTRO
+
+What are-- you're singing and dancing. You made up a song? [__TREXEL:__ Yes!] For this planet? [__DAVID:__ Yes, for the golden robot...] This planet does *not* deserve a song!
+
+##### [...]
+
+#### TREXEL
+
+Oh.
+
+#### HARTRO
+
+##### [Trexel quietly begins reciting the song]
+
+You did something very naughty! *You* put a little bit of I.M.O.G.E.N. into these robot-- don't sing the song.  Don't you dare. [__TREXEL:__ Sorry.] So you decided to give them a bit of I.M.O.G.E.N.. [__TREXEL:__ Just a little bit of I.M.O.G.E.N.!] You *cannot* give them a little bit of I.M.O.G.E.N.! [__TREXEL:__ Just a little-- some of I.M.O.G.E.N.!] *No!* I.M.O.G.E.N. is like Stellar Firma Ltd.'s head. And you thought you could cut off our nose, and give it to a different planet?
+
+#### TREXEL
+
+As you say it back to me, that *does* sound bad. Even a dumbed-down version of I.M.O.G.E.N. is, yes, one of the most powerful entities on-- on the face of the universe.
+
+#### HARTRO
+
+Even-- yes! Even a speck of Imogen is *not* dumbed-down. 'Dumb' doesn't go in the same sentence as 'I.M.O.G.E.N.'.
+
+#### TREXEL
+
+Right, right, right.
+
+#### HARTRO
+
+In fact, I bet if she's-- well, she *is* listening, isn't she? [__TREXEL:__ She's *always* listening!] She's *not* going to be happy about that.
+
+#### TREXEL
+
+I.M.O.G.E.N.? How do you feel about me giving a tiny part of you to a client?
+
+#### IMOGEN [error buzz]
+
+Watch it, buster!
+
+#### TREXEL
+
+Not happy.
+
+#### HARTRO
+
+No. No, so.
+
+#### TREXEL
+
+Obviously this would have been caught down the line.
+
+#### HARTRO
+
+*You* should have caught this! In fact, David 7, *you* should have caught this!
+
+#### DAVID
+
+Uh huh.
+
+#### TREXEL
+
+Yes, David.
+
+#### HARTRO [warning]
+
+*Stop it,* Trexel. Trexel, *I* do the telling off. [__TREXEL:__ I'm sorry.] You sit quietly. [__TREXEL:__ I'm sorry.] David 7?
+
+#### DAVID
+
+Yes. I... was sleepy at... the time? ...Sorry.
+
+##### [...]
+
+#### HARTRO [sighs]
+
+Right. Don't *ever* let Trexel give out any bit of Imogen. Just... *don't* let it happen. I shouldn't need to say this. Anyway, one more thing about that last planet, the Build Team have sent something back. Apparently they didn't need it, it was broken, anyway here you go, it's some sort of... I don't know.
+
+#### TREXEL
+
+It's a smashed graph friend. [__DAVID:__ Oh!] David, this is Henry!
+
+#### DAVID [feigning concern]
+
+Oh-- oh, no. Oh, Henry.
+
+#### TREXEL
+
+Poor Henry, smashed in his prime. [__DAVID:__ Ohh... ] I commiserate with you, David. I know...
+
+#### DAVID [not sad at all]
+
+So sad.
+
+#### TREXEL
+
+...that a person and their graph friend, it's a bond that only rivals the love of a parent. I mean, obviously, *I* have Percy at home, and if anything happened to Percy like this, well, I don't know what I'd do. I'd probably just...
+
+#### HARTRO
+
+It's a *toy*.
+
+#### TREXEL
+
+It's a friend! It's a graph friend! You wouldn't understand, Hartro, you had other friends as a child.
+
+#### HARTRO [dryly]
+
+I have *real* friends.
+
+#### TREXEL
+
+Me and David here... we're different. We're friendless in this world.
+
+#### HARTRO
+
+I'm *definitely* different.
+
+#### TREXEL
+
+I haven't seen Percy in a long time...
+
+#### DAVID [quickly]
+
+Oh, I'm sure he'll turn up. Um, so...
+
+#### HARTRO
+
+Next planet.
+
+#### IMOGEN [beep]
+
+Consultant design recommendation file!
+
+#### HARTRO
+
+Bathin, the Great Duke of Galactonium. [__TREXEL:__ Hmm...] And he is *great*, isn't he? Oh... I love working with him!
+
+#### TREXEL [grumbling]
+
+Yes, yes, yes, what about Bathin, what did he think of his planet?
+
+#### HARTRO
+
+Oh yes, oh, um, well, he's filled out a feedback form!
+
+#### DAVID
+
+Oh, that's very helpful!
+
+#### HARTRO
+
+So conscientious of him, isn't it? I've got it here, and--
+
+#### IMOGEN [beep]
+
+#### HARTRO
+
+Oh. Oh, no, it's just... it was just a photo of him... with his autograph. That's strange... lovely, isn't it?
+
+#### DAVID
+
+What handsome nipples he has!
+
+#### HARTRO
+
+##### [appreciative]
+
+He does! And he's *strong*, isn't he? But it looks like he's sensitive as well? [__DAVID:__ Yes, big soft arms. Mmm.] Like I feel like you could talk to him if you had a problem.
+
+#### DAVID
+
+Maybe just lay your head on his... chest.
+
+#### TREXEL
+
+Is there any actual *feedback* or is this just...
+
+#### HARTRO
+
+Oh, I took some notes, so I'll just see the... oh, no. No, it's just more photos of Bathin-- oh, David 7, look at this.
+
+#### DAVID
+
+Is he-- is he making six cocktails at once?
+
+#### HARTRO
+
+How-- how could you even *do* that? [__DAVID:__ I know!] And he makes it look-- he looks like he'd be-- it's *fun*. You know? I want to go over there and, and have one of them.
+
+#### DAVID
+
+He's not even trying. [__HARTRO:__ No.] He's talking to you and listening actively, at the same time as making six cocktails.
+
+#### HARTRO
+
+Trexel! Look!
+
+#### TREXEL [halfheartedly]
+
+Isn't... 's nice.
+
+#### IMOGEN [beep]
+
+#### HARTRO
+
+And-- and look at this one! Oh, he's studying! His glasses... what's he reading there? Oh... oh, "How to Make Yourself A More Understanding Person".
+
+#### TREXEL [snappish]
+
+Now, *that* doesn't seem like a real book!
+
+#### HARTRO
+
+But it is! Look, it's right there.
+
+#### DAVID
+
+##### [Hartro dreamily sighs]
+
+Quite big. Very small text, actually, I think is that... so it's a dense read. [__TREXEL:__ Okay.] But he seems to be really into it, actually...
+
+##### [...]
+
+#### HARTRO
+
+Trexel, why do you look so angry?
+
+#### TREXEL
+
+##### [whispered fervently]
+
+Well, I just--  I just feel like we're spending a lot of time talking about how good Bathin is, while everybody in this room knows *full well* that I do not get on with Bathin.
+
+#### HARTRO
+
+Oh, you know Bathin?
+
+#### TREXEL
+
+Yes!
+
+#### HARTRO
+
+You know Bathin?!
+
+#### TREXEL
+
+I do-- You *know* I know Bathin!
+
+#### HARTRO
+
+Oh-- tell me about Bathin!
+
+#### TREXEL
+
+He's-- an-- an old school-- I'm gonna say *friend* of mine, but we didn't get on.
+
+#### HARTRO
+
+No.
+
+#### TREXEL
+
+And Bathin's a-- I don't want to be coarse, but in my opinion, Bathin's an idiot.
+
+#### HARTRO [offended gasp]
+
+Take it back.
+
+#### TREXEL
+
+I'm sorry, that's how I feel, Hartro.
+
+#### HARTRO
+
+Do you know what? He's a respectable man. He does good things. He has several charities. Do you have a charity? Do you have *one* charity? He has seven charities that I can think off the top of my head!
+
+#### TREXEL
+
+What-- what for? What are these charities?
+
+#### HARTRO
+
+Oh-- one charity for... people who don't know where their spaceship is. Do you ever have it when you lose your spaceship. [__TREXEL:__ Yes.] Well, he's got something for that! [__TREXEL:__ Okay.] People who don't like to shop. [__TREXEL:__ I know people hate that.] Just the other day, I didn't feel like shopping, I just called up his charity and somebody came and shopped for me. He's a lovely man. He makes the world better, Trexel.
+
+#### TREXEL
+
+Fine, I take it back... Bathin is a wonderful person and a valued client.
+
+#### HARTRO
+
+Hmm. Fair. Was that so hard?
+
+#### TREXEL
+
+##### [David and Hartro make shocked and disgusted noises]
+
+Well, if you think he's got handsome nipples, why don't ya get a load of *these* boys?
+
+#### IMOGEN [beep]
+
+Warning! Nipples detected. Security alerted!
+
+#### HARTRO
+
+No, stop!
+
+#### TREXEL
+
+See? We've all got handsome nipples!
+
+#### DAVID
+
+Oh, so *dry...*
+
+#### TREXEL
+
+Yes. Well, since you squeezed all the moisture out of me, David, it's dry and flappy now.
+
+#### HARTRO [disgusted]
+
+Put it down. Put it down.
+
+#### TREXEL
+
+##### [Hartro sighs in relief]
+
+Okay. I'll hush these puppies away. So, see? Both Bathin and I have very handsome nipples, so it's not *all* his game!
+
+#### DAVID [supremely upset]
+
+Like tiny blue calderas.
+
+#### HARTRO
+
+Oh. Ergh, okay. Let's just shake that off. Uh... back to business!
+
+#### IMOGEN [beep]
+
+Consultant design recommendation file!
+
+#### HARTRO
+
+Psilax Bromius, the party planet! Yes, yes, yes, yes. The ultimate rave in space.
+
+#### TREXEL
+
+Yes! The space rave.
+
+#### HARTRO
+
+Well, I don't know *how,* but you've actually managed to make a party that teenagers *like*.
+
+#### TREXEL
+
+A success! A success, David!
+
+#### DAVID
+
+Oh, we did well!
+
+#### HARTRO
+
+No, no--
+
+#### TREXEL
+
+They love it! Grab the-- champagne! Champagne!
+
+#### HARTRO
+
+No, no, no, no! It's bad! It's terrible! Because all of the teenagers in the galaxy are going to this planet!
+
+#### TREXEL
+
+##### [sings]
+
+##### [doots]
+
+That's what we *wanted!* That's what we wanted, a super-- a super cool party with music  I'm scared of... Dance now.
+
+#### HARTRO
+
+Trexel. *All* of the teenagers are going. We're losing our youth. In fact, some of these teenagers have parents who are *senior executives*!
+
+#### TREXEL
+
+Oh, *no*.
+
+#### HARTRO
+
+It is not good.
+
+#### TREXEL
+
+Not good at all, no! No, we have to stop this! If-- if the senior executives get wind that all of their teens have been enticed onto my rave planet, then-- then-- then I'll never-- I'll never get another decent assignment again! We have to stop this, Hartro, we have to stop this!
+
+#### HARTRO
+
+You don't think I know this?
+
+#### DAVID
+
+We could just end the party! [__TREXEL:__ Yes!] We could just end the party, we built it in!
+
+#### TREXEL
+
+We built in a party ender!
+
+#### HARTRO [crosstalk]
+
+If it was that simple, we would do that!
+
+#### TREXEL
+
+But you just-- you just press the party end button, and then __[DAVID:__ Moon crashes in] a moon just crashes in and it turns into a burning star!
+
+#### HARTRO
+
+...okay, do you see the problem there?
+
+#### TREXEL [muttering to himself]
+
+##### [realization]
+
+Okay, hang on there.Well, you crash the moon into the burning star, and then everybody dies... everybody dies.
+
+#### DAVID
+
+Ahhh.
+
+#### HARTRO
+
+Everybody, including very important teenagers to senior executives.
+
+#### TREXEL
+
+V.I.P. teens.
+
+#### HARTRO
+
+Yes.
+
+#### TREXEL
+
+Right.
+
+#### HARTRO
+
+So we cannot do that.
+
+#### TREXEL
+
+##### [Hartro gasps]
+
+Righty-o. Well, in my experience, parties always end about 15 minutes after I arrive, so.  So surely it can't be long for this world!
+
+#### HARTRO
+
+That is brilliant.
+
+#### TREXEL
+
+What's brilliant? Have I had a good idea?
+
+#### HARTRO
+
+Oh my gosh, Trexel, I don't know how you've *accidentally* had so many brilliant ideas, but, you go! *You* go! Yes, oh, lovely, yes, oh, I love that.
+
+#### TREXEL
+
+##### [imitates 'cool teen' voice]
+
+What do you mean? If I go, surely people will think it's even hipper. 'Trexel's here! Look at this. Look at him. Look at that.'
+
+#### HARTRO
+
+Trexel, I'm counting on the fact that that *won't* happen.
+
+#### TREXEL
+
+All right. I'll-- I'll make you a bet.
+
+#### HARTRO
+
+All right!
+
+#### TREXEL
+
+I'll go there and I'll turn up. And yes, parties do tend to end pretty quickly after I finish! But only because they're all, like, 'Whoa, this party's *too* hot!'
+
+#### HARTRO
+
+I have an idea. [__TREXEL:__ What?] Yes. Yes. You'll go this weekend. [__TREXEL:__ Yes.] Lovely! And you take off your shirt! Fantastic. David 7, I'm brilliant, don't you think?
+
+#### DAVID
+
+Oh, yes, absolutely.
+
+#### HARTRO
+
+'Cause it was horrible, wasn't it?
+
+#### DAVID
+
+The nipples.
+
+#### HARTRO
+
+I wanted to be away.
+
+#### DAVID [haunted]
+
+The nipples.
+
+#### TREXEL [offended]
+
+All right, all right, we can all agree that my nipples maybe aren't the best, but they've got-- they've got something to offer to the world.
+
+#### DAVID
+
+We'll just offer them to the party.
+
+#### TREXEL
+
+Well, okay, yes. We'll take them to the masses! I'll lift up my shirt to the party and shout, "Hey teens: here's the nips!" and then we'll see what happens. Okay?
+
+#### HARTRO
+
+Ah, I think that's good as done!
+
+#### TREXEL
+
+Good. Well, I didn't have any plans this weekend so I look forward to it!
+
+#### HARTRO
+
+Yeah. And we know you like to party.
+
+#### TREXEL
+
+I love to party!
+
+#### IMOGEN
+
+Consultant design recommendation file!
+
+#### HARTRO
+
+##### [scoffs]
+
+##### [Trexel "mhm"s]
+
+Lorek Brynison's planet, the armoured polar bears, yes. Oh come--  that should have been so easy? Right? You just build a sphere of ice,  and you realize how sensitive this is! And you've already killed two of their planets!
+
+#### TREXEL
+
+Hartro, I went into this planet so carefully. I have *personally* caused two world deaths for these people. [__HARTRO:__ Yes.] So I made it very, very clear to David, and to myself when we were designing it, that we can on no account let them know that we are even *thinking* about heating up any sort of ice on their planet. And I think I nailed it.
+
+#### HARTRO
+
+You* hid* heaters in accountants.
+
+#### TREXEL
+
+Who looks at accountants? Who looks at accountants?
+
+#### HARTRO
+
+Apparently polar bears! I mean there's flesh, there's blood. I mean, that just says "tasty morsel"!
+
+#### TREXEL
+
+But-- but there were seals! And we made them accountants to make them less enticing!
+
+#### HARTRO
+
+It's still flesh, come on! Doesn't matter if your food's boring, you still eat it.
+
+#### TREXEL
+
+That is true. You eat mostly mush, don't you, David?
+
+#### DAVID
+
+Uh, yes. Yes. Slurry.
+
+#### TREXEL
+
+Yes. I just *drink*.
+
+#### HARTRO
+
+Moisturiser...
+
+#### TREXEL
+
+Moisturiser, mostly. Very fattening.
+
+#### HARTRO
+
+Hmm.
+
+##### [...]
+
+#### TREXEL
+
+So they've eaten the accountants.
+
+#### HARTRO
+
+They're very upset. Yes, they really-- really only had to eat one accountant, because once you eat one accountant and you realize, actually it's a heating mechanism, there's, um, "Oh! Oh, looks like they're trying to kill us again!" [__TREXEL:__ Yes.] "That old Trexel Geistman, third planet's the charm!"
+
+#### TREXEL
+
+Did they-- do they know it was *me* specifically?
+
+#### HARTRO
+
+Oh yes, they know it was you.
+
+#### TREXEL
+
+Ah.
+
+#### HARTRO
+
+Yeah. *Not* good. Oh, and guess who's reached out to them?
+
+#### TREXEL
+
+Uh-- is it you? Is it you with an apology on my part?
+
+#### HARTRO
+
+Well, of course I've reached out to them, I've smoothed it over like I always do, as best I can. But no, they don't want to see me, because now they're in alliance with the megatrons! Ha-- the *other* planets that hate us! This is not good.
+
+#### TREXEL
+
+Yes. To be fair, I'm not at fault for the megatrons, that was humanity.
+
+#### HARTRO
+
+Well, yes, but we don't want them working together, and they are. And you are at fault for that. So it's twice as bad.
+
+#### TREXEL
+
+Okie-dokie.
+
+#### HARTRO
+
+I don't understand, David 7.
+
+#### DAVID
+
+Uh, yes?
+
+#### HARTRO
+
+That was an *obvious* warlike situation, which Trexel created. Why did--
+
+#### TREXEL
+
+David, are you trying to *sabotage* me?
+
+#### DAVID [flatly]
+
+No.
+
+#### TREXEL
+
+*Et tu*, David!? [__DAVID:__ No.] A viper in my bosom! I clutched you to my breast--
+
+#### DAVID [crosstalk]
+
+Oh. No...
+
+#### HARTRO [crosstalk]
+
+Oh, hold your horses.
+
+#### TREXEL
+
+Like a kindly snake, and it turned out you would try and *bite me!*
+
+#### DAVID
+
+Just... very sleepy... sorry!
+
+#### HARTRO
+
+*And*-- and, you requested a particle accelerator.
+
+#### DAVID
+
+Uh...
+
+#### HARTRO
+
+I think once your data's been loaded, David 7, you get, what do you have, oh... subservience... Yet right after the subservience, I think that's when they add the "don't start wars" [__TREXEL:__ Don't cause wars, yep.] and... "don't request particle accelerators". [__TREXEL:__ Yeah, don't-- don't--] It's very clear.
+
+#### TREXEL
+
+Do not mess with the fabric of reality.
+
+#### HARTRO
+
+And yet that-- I have an alert here that's been issued from I.M.O.G.E.N., that you did do that.
+
+#### DAVID
+
+Well... Trexel's very forceful... and I-- I-- I also need to support... the designer in their-- their desires, so.
+
+#### HARTRO
+
+##### [quickly]
+
+You do! You need to work together, you're a team-- that's it! There's not enough teamwork going on! Ooh, that gives me an idea. Ah, yes, I know exactly what I'll do. [__TREXEL:__ Right, what are you going to do?] Uh, brilliant! Great! Oh, you'll see. Ah... bad job, and... planets bad, and...  see you later. Bye!
+
+##### [slippery sound as she stands, door swooshes open] [door swooshes closed]
+
+#### TREXEL
+
+Bye, Hartro.
+
+#### DAVID
+
+Bye. Bye. Okay... I hope that doesn't involve feet.
+
+#### TREXEL [solemnly]
+
+David, it's always certainly going to involve feet in some way. I don't know why and I don't know how, but when Hartro Piltz has an idea and it's to do with me, it's gonna end up with a foot in my mouth.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+But she has a point, David!
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+##### [suspiciously]
+
+Previously, most clones have, you know, given me a bit of a heads up about this sort of stuff. Sure, I've ignored them. Sure, they've been recycled, but they yammer on, saying, "No, Trexel, no, this is against my directives!" And that hasn't happened a *single* time with you.
+
+#### DAVID
+
+Up... graded models...
+
+#### TREXEL
+
+I know what's going on, David! [__DAVID:__ Uh...] I know exactly what's happening here! [__DAVID:__ Wh--]  You try and trick me and hide it from me, David, but I've got to the core of the idea. [__DAVID:__ Wha--?]I know what this has all been about! [__DAVID:__ What--] Weeks on weeks you've been here and now I understand it! *I need another pint of moisturiser!* That's it, isn't it?! I've got distracted, what are we doing? I'm thirsty. Bye bye!
+
+##### [slippery sound as he stands, door swooshes open] [door swooshes closed]
+
+#### DAVID
+
+Ahh... um. How do I fix this?
+
+##### [show theme starts]
+
+#### IMOGEN
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Lowri Ann Davies with executive producer Alexander J. Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, Hartro Piltz was played by Jenny Haufek, and Trexel Geistman was played by Tim Meredith. The episode was edited by Edward von Aderkas and Alexander J. Newall, with music by Samuel D.F. Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook, or email us via mail@rustyquill.com. May the Board preserve and keep you.

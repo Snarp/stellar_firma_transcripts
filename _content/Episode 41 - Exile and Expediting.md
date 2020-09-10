@@ -1,0 +1,1893 @@
+---
+layout: post
+title: EXILE AND EXPEDITING
+date: 
+categories: episode
+tags: 
+episode_number: '41'
+
+---
+
+# __EPISODE 41 - EXILE AND EXPEDITING__
+
+## Transcribed 3/27/20 via stellarscripts on tumblr
+
+#### ALEX
+
+Hi everyone, Alex here. I'd just like to take a moment to thank some of our patrons: Rachel Attaway, Itzel Anayeli M., Emma Briannon, Annika Ekholm, Faine Greenwood, Jake The Fake Jake, Caitlin Martin, Avery Winther, Jamie Frew, Ebony Biar, Misha, Torsanist, Percival Shaw, Jack, Lee McNally, Jennifer, Elliot H T, David D Martin, Gayest-Bee, Elizabeth Coretto. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+#### TREXEL
+
+Special thanks to Abigail Roberts. May your cup runneth over into another larger cup.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+##### [David and Trexel yell while falling through the tube, land with a splat]
+
+#### DAVID
+
+What-- Um...
+
+#### TREXEL
+
+Ohhhh... both my legs.
+
+#### DAVID
+
+Why?
+
+#### TREXEL
+
+##### [grunts]
+
+Oh, there's some crunchy, crunchy bones in my legs.
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+##### [grunts, cracks joints]
+
+Woah. Ah-ah. And--
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+And that is why you have joints put in your legs.
+
+#### DAVID
+
+Well, um, I have-- the slime acted as sort of a cushion so I--
+
+#### TREXEL
+
+You're sort of a cushiony splat.
+
+#### DAVID
+
+--bounded, yes. Um--
+
+#### TREXEL
+
+As opposed to my gentlemanly crunch.
+
+#### DAVID
+
+Where are we?
+
+#### TREXEL
+
+Trexel.
+
+#### DAVID
+
+Y-ye-- No. Where are we?
+
+#### TREXEL
+
+Oh, sorry, I just thought, "where am I?" and I thought, "well, I'm in Trexel's body."
+
+#### DAVID
+
+Uh--
+
+#### TREXEL
+
+The answer is I don't really know, David. I've-- I've been flushed through a few tubes in my time. [__DAVID:__ Yeah.] But it's been happening with alarming regularity more recently and I've sort of lost track of where we are.
+
+#### DAVID
+
+Okay. Do--
+
+#### TREXEL
+
+It's... gross in here.
+
+#### DAVID
+
+It's very big. And, um, empty.
+
+#### TREXEL
+
+And dark.
+
+#### DAVID
+
+This is very different.
+
+#### TREXEL
+
+This doesn't seem like anywhere I've seen on the ship.
+
+#### DAVID
+
+Why is it so rusty?
+
+#### TREXEL
+
+Hmm. Well, when a mummy time and a daddy time love each other very much, they get together [__DAVID:__ No-- no. I know--] and have lots of baby linear time.
+
+#### DAVID
+
+I know how-- Wait, no. I know--
+
+#### TREXEL
+
+And that time oxidizes metals.
+
+#### DAVID
+
+I-I know "how" rusty.
+
+#### TREXEL
+
+Mm-hmm.
+
+#### DAVID
+
+I meant "why" rusty.
+
+#### TREXEL
+
+Oh. When a maintenance staff and a part of the ship don't like each other anymore because they've grown apart as people, they probably don't come down here.
+
+#### DAVID
+
+Okay. But why are-- why are we here?
+
+#### TREXEL
+
+Well--
+
+#### DAVID
+
+Where is here? Have we been fired?
+
+#### TREXEL
+
+No. We'd-- You'd know if you'd been fired. Do y'know why?
+
+#### DAVID
+
+Why?
+
+#### TREXEL
+
+Because you'd've been fired out of something such as a cannon.
+
+#### IMOGEN
+
+##### [beep]
+
+It saves on paperwork.
+
+#### DAVID
+
+Right. Yes.
+
+#### TREXEL
+
+And we've been whooshed through a tube.
+
+#### DAVID
+
+Yes. I--
+
+#### TREXEL
+
+So it's not good... not necessarily bad.
+
+#### DAVID
+
+Right. Okay. Um--
+
+#### TREXEL
+
+##### [presses button, mechanical whirring]
+
+But how do we--  Ah! See.
+
+#### DAVID
+
+Oh, a console.
+
+#### TREXEL
+
+There is a console.
+
+#### DAVID
+
+Okay. Um...
+
+#### IMOGEN
+
+##### [beep]
+
+You have one new message.
+
+#### DAVID
+
+Oh, there's a-- there's a button.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+Um, do you want-- do you wanna press that? You're closer to the button.
+
+#### TREXEL
+
+I'm sorry.
+
+#### DAVID
+
+Well, you're-- you're there--
+
+#### TREXEL
+
+##### [stammers]
+
+I'm sorry, you-- you seemed to have mistaken me for a, a button-pushing lackey. Oh, sorry-- Oh, I'm sorry,  is David away? Are you, are you now in charge and, and now you order me to push buttons? Is, is that it?
+
+#### DAVID
+
+Well, I do-- I don't--
+
+#### TREXEL
+
+Would you like, perhaps a, a hot drink? Or maybe a back rub?
+
+#### DAVID
+
+Ooh!
+
+#### TREXEL
+
+You slimy fool!
+
+#### DAVID
+
+Yes, a--
+
+#### TREXEL
+
+You push the buttons!
+
+#### DAVID
+
+What-- Oh. What-- Oh, am I--
+
+#### TREXEL
+
+Button pusher not I!
+
+#### DAVID
+
+I don't even know what our jobs are! I don't even know if I'm your assistant anymore!
+
+#### TREXEL
+
+Look into my face.
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+My job is Trexel; your job is David. That is *all* you need to know.
+
+#### DAVID
+
+Okay, so what is David's job?
+
+#### TREXEL
+
+Press the button.
+
+#### DAVID
+
+That's my job?
+
+#### TREXEL
+
+Press it.
+
+#### DAVID
+
+That's all I'm doing?
+
+#### TREXEL
+
+I order you as your Trexel boss to press the button.
+
+#### DAVID
+
+Well, as I said, I don't know if you're my boss. Hm! Hm? Hm! What's even our jobs? What are we doing?
+
+#### IMOGEN
+
+##### [beep]
+
+Narrative cul-de-sac detected. Security alerted.
+
+#### DAVID
+
+I'm gonna press the button but *not*... I'm gonna press the button.
+
+##### [presses button]
+
+#### MEZ
+
+##### [static] [audio stutters]
+
+##### [audio stutters]
+
+##### [audio stutters]
+
+##### [blows party horn]
+
+##### [audio stutters]
+
+##### [audio stutters]
+
+##### [audio stutters]
+
+##### [sighs]
+
+##### [mechanical whirring as tube comes out]
+
+This is a message from Mez Heckra,  chief and only-- well, not even that anymore. I'm the Expeditor and this is my retirement  party.  Yes, well, the department has been pretty quiet since Skinda opened that parcel and Caleb fell in the pit. Anyway, I thought it was only fair, given my many years of experience, that my replacement gets fair warning. You're pretty  screwed. No one likes us. Management barely knows about us. I think the only time they even think about us is when they're pissed off about something we couldn't fix, which is most things if I'm being honest. It's my job, your job now, to deal with-- well, we don't call them complaints. No one complains at Stellar Firma. Let's call them... uh,  suggestions. I make recommendations to help. Try to make things a lil' better. Not that things are that bad, I've never suggested that. Just take the messages, think of a solution, and submit it. Job done. Just remember you have no budget, nobody cares about your opinion, and I'm not entirely convinced that anyone reads what we write.  What the hell do I know. Still, as far as I know I'm the only Expeditor who has ever been given the chance to retire. Everyone else... Oh, I just count myself lucky is all I'm sayin'.
+
+#### IMOGEN
+
+##### [beep]
+
+##### [audio stutters]
+
+Employment  expired. Please enter the retirement tube.
+
+#### MEZ
+
+The tube? This is the retirement tube, is it?
+
+#### IMOGEN
+
+##### [beep]
+
+##### [audio stutters]
+
+Please enter the retirement  tube.
+
+#### MEZ
+
+Because it looks a lot like a tube we put the rubbish into for recycling.
+
+#### IMOGEN
+
+##### [beep]
+
+Get in the tube.
+
+#### MEZ
+
+##### [sighs]
+
+Well, best of luck whoever you are. Oh, and remember, if someone sends you a parcel and the card says it's "thank you cake", don't open it. The powder will melt your bones.
+
+##### [recording switches off]
+
+#### IMOGEN
+
+##### [beep]
+
+He seemed nice!
+
+#### TREXEL
+
+Expediting.
+
+#### DAVID
+
+We are... Expeditors.
+
+#### TREXEL
+
+##### [can't-believe-he's-in-this-situation chuckle]
+
+Expediting.
+
+#### DAVID
+
+Is that good?
+
+#### TREXEL
+
+##### [agitated]
+
+##### [distressed sigh]
+
+Noooo! David, it is not... good! No, it's-- the--  David, you know how you've been threatened with recycling from time to time.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+This is, in many ways, worse.
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+##### [shouts]
+
+This is a living death. It is the pit of irrelevance. It is the-- the soupçon of  *no one gives a good Board damn where you are or what you're doing!*
+
+#### DAVID
+
+Well-- uh, yes. But... Well, it sounds like we're doing suggestions. Um, and, and, uh, that guy got to retire which is better than being blended. So...
+
+#### TREXEL
+
+David, have ever met anyone who's retired? David, have you ever seen anybody who's even that old?
+
+#### DAVID
+
+N-n-no.
+
+#### TREXEL
+
+Think on that. Think on it.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Do you think retirement is a good thing?
+
+#### DAVID
+
+So, what you're saying is that regardless of what we do, even if we do a good job, we will end up being put in some sort of tube.
+
+#### TREXEL
+
+In many ways isn't life... a little bit like that? No matter what you do, you're going in a tube at some point so you may as well make your time here alive count.
+
+#### IMOGEN
+
+##### [beep]
+
+Trite but largely right.
+
+#### DAVID
+
+##### [stammers]
+
+Okay. Well,  what he was saying is that people kind of ignored him. So, we can maybe stay here for a bit without, you know, being... Standardized or threatened by Hartro or...
+
+#### TREXEL
+
+And what I'm saying, David, is that being ignored is worse than death. [__DAVID:__ Right.] Because at least when you're dead everybody has to come to your funeral and eat *bad sandwiches!*
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+*You have ruined my life! You understand that?!*
+
+#### DAVID
+
+Me?!
+
+#### TREXEL
+
+You have ruined my life!
+
+#### DAVID
+
+I've ruined your life?!
+
+#### TREXEL
+
+##### [yells]
+
+If you hadn't drawn so much attention to yourself with all of your "fact corners" and "trying to do jobs well", [__DAVID:__ Hey!] then maybe we wouldn't have been  *flushed down a tube* [__DAVID:__ No.]* into the most irrelevant part of this entire Stellar Firma station!*
+
+#### DAVID
+
+No. First of all, we're still alive so that's a silver lining!
+
+#### TREXEL
+
+I was alive before you were around!
+
+#### DAVID
+
+Well, I... was also alive--
+
+#### TREXEL
+
+No you weren't!
+
+#### DAVID
+
+--when I've been alive.
+
+#### TREXEL
+
+No you weren't!
+
+#### DAVID
+
+I was alive for when I was alive!
+
+#### TREXEL
+
+What you have is not life.
+
+#### DAVID
+
+What?! How dare you!
+
+#### TREXEL
+
+You have a pale shadow.
+
+#### DAVID
+
+##### [nonsense mouth noises]
+
+No, I am alive. Look. Could a dead person do that? No!
+
+#### TREXEL
+
+Oh, that's pretty alive.
+
+#### DAVID
+
+Yeah, exactly.
+
+#### IMOGEN
+
+##### [beep]
+
+Wobble boy detected. Security alerted.
+
+#### DAVID
+
+So, I'm alive and I'm still alive! And I haven't been put into some sort of horrible blender and made into slurry, have I?
+
+#### TREXEL
+
+No.
+
+#### DAVID
+
+So that's *good*!
+
+#### TREXEL
+
+That-- yes. Well--
+
+#### DAVID
+
+Well done me. Also, we have not been gassed to death or flooded or drowned. You know, Hartro was going to kill us!
+
+#### TREXEL
+
+That's a good point. Why didn't Hartro end up killing us?
+
+#### DAVID
+
+Well, because we got stopped and then became tubed.
+
+#### TREXEL
+
+##### [stammers]
+
+But that doesn't just happen, David.
+
+#### DAVID
+
+Well--
+
+#### TREXEL
+
+Who did it?
+
+#### DAVID
+
+I don't know. Well, I mean--
+
+#### TREXEL
+
+Standards? Did Standards swoop in for you?
+
+#### DAVID
+
+Well, it--
+
+#### TREXEL
+
+That doesn't seem like their style.
+
+#### DAVID
+
+IMOGEN stopped things.
+
+#### TREXEL
+
+Well, IMOGEN controls everything.
+
+#### DAVID
+
+Well then maybe IMOGEN controlled that and controlled it in a way where now we're Expeditors.
+
+#### TREXEL
+
+Are you saying IMOGEN's on our side?
+
+#### DAVID
+
+I'm--
+
+#### TREXEL
+
+IMOGEN save us!
+
+#### IMOGEN
+
+##### [beep]
+
+If you assume my help again... I will cut off your oxygen supplies.
+
+#### TREXEL
+
+Okay, well it was worth a go.
+
+#### DAVID
+
+Yes. Um... well, now we're here.
+
+#### TREXEL
+
+We sure are.
+
+#### DAVID
+
+We might as well make the best of it. And--
+
+#### TREXEL
+
+David--
+
+#### DAVID
+
+What?
+
+#### TREXEL
+
+--I think in past times I would have yelled at you for twenty to thirty minutes about how *stupid that sentence was*.
+
+#### DAVID
+
+Yeah, and so far, it's only been about four.
+
+#### TREXEL
+
+But given that I feel that we have grown as people--mainly me but you've also been here--
+
+#### DAVID
+
+Hmm...
+
+#### TREXEL
+
+##### [chuckles]
+
+##### [resigned]
+
+--that what I'm going to say is I am intensely furious at you. [__DAVID:__ Okay.] However, there may be some factors that... certain people could say are at play. That in a certain light could suggest that maybe... not everything is your fault and, and maybe in some ways you've-- I can't--  This is-- No, sorry. I'm, I'm sweating and, and my fists feel itchy. In some ways, maybe we should, as you say,  "make the best of this situation." So, until I can think of something better to do, how about we have a go at one of these pointless suggestions that nobody will listen to and see how we get on.
+
+#### DAVID
+
+##### [sarcastic]
+
+How magnanimous.
+
+#### TREXEL
+
+I am mag-the-nanamous.
+
+#### DAVID
+
+Right. 'Kay. Well, there is a briefing tube here. So, I'm gonna get the... um, no I suppose it's a "suggestion" tube.
+
+#### TREXEL
+
+##### [sarcastic]
+
+Do you want a label maker or something to rename everything?
+
+#### DAVID
+
+I'm just tryn'a make sense of our situ--
+
+#### TREXEL
+
+Just get the piece of thing out of the thing!
+
+#### DAVID
+
+Fine. Fine.
+
+#### IMOGEN
+
+##### [beep]
+
+Initiating.
+
+#### DAVID
+
+##### [pneumatic tube seal breaks]
+
+##### [closes tube door]
+
+Right.  Here's the thing.  Right. So this is from Drydon Quigley.
+
+#### TREXEL
+
+Who cares? Sorry. Sorry, sorry. Trying. Trying. Trying? Trying. Go--
+
+#### DAVID
+
+P-pronouns are she/her. Uh-- Ooh, the department is Security! So maybe--
+
+#### TREXEL
+
+Oh...
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Okay. Well, that-- that-- you know what? That actually is-- That's an important place, I suppose.
+
+#### DAVID
+
+Yes. Sounds like they're gonna *know* you.
+
+#### TREXEL
+
+Yeah, well...
+
+#### DAVID
+
+Uh, they are a--
+
+#### TREXEL
+
+Not that they've done anything, the cowards.
+
+#### DAVID
+
+Okay. I'm just gonna-- They are a General Thug.
+
+#### TREXEL
+
+Oh.
+
+#### DAVID
+
+So, for general--
+
+#### TREXEL
+
+In that they are the General who commands all the Thugs, [__DAVID:__ N--] or that they are one of sundry Thugs?
+
+#### DAVID
+
+No, I think they are employed for general thuggery.
+
+#### TREXEL
+
+General thuggishness.
+
+#### DAVID
+
+Yes. But their compl-- suggestion... is that, um, "Help! I'm trapped in the Security office! I've tried calling, knocking, sending notes through the vents and no one has come. I thought for sure when no one answered the Security alerts someone would check on me, if only to recycle me, but no one came. Is anyone still here?"
+
+#### TREXEL
+
+Hmm. Interesting.
+
+#### DAVID
+
+Uh...
+
+#### TREXEL
+
+Well, I've never met a door that doesn't stand up to *the beating of my furious fists*! So, we could go to the office and beat the door down with my fists. Problem solved. Printo-pronto.
+
+#### DAVID
+
+Okay. Where is the Security office?
+
+#### TREXEL
+
+Oh! I don't know.
+
+#### DAVID
+
+Okay. And how would we find the Security office?
+
+#### TREXEL
+
+Well, that's an interesting question. I don't know.
+
+#### DAVID
+
+Okay. Do you even--? You don't even know where we are.
+
+#### TREXEL
+
+Hmm?
+
+#### DAVID
+
+Well, where are we on the station?
+
+#### TREXEL
+
+Well, we're, um--
+
+#### DAVID
+
+And don't say here.
+
+#### TREXEL
+
+Trexel?
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+Mmmm... Oh, okay. Well, David, I, I must admit there has been a little bit of a worry niggling at the back of my mind since we arrived here.
+
+#### DAVID
+
+Mm-hmm.
+
+#### TREXEL
+
+Normally in all the places that we've worked together I would leave and go to... well, once the Cosmic Lounge, and then, then--
+
+#### DAVID
+
+A bar.
+
+#### TREXEL
+
+--later to the Astral Bar. I don't know where this is, so how am I going to get back there?
+
+#### DAVID
+
+That's your main concern?
+
+#### TREXEL
+
+Well, yes, because I need to leave here for most of the day to do other Trexel-based things. [__DAVID:__ Mm-hmm.] I've got a date!
+
+#### DAVID
+
+With?
+
+#### TREXEL
+
+Well, a Broom.
+
+#### IMOGEN
+
+##### [beep]
+
+I had hoped we could all forget about the Broom.
+
+#### DAVID
+
+##### [stammers]
+
+Look-- we-- a--
+
+#### TREXEL
+
+We're going steady.
+
+#### DAVID
+
+You're-- you're now dating a Broom?
+
+#### TREXEL
+
+Yes. [__DAVID:__ You're go--] It's going well. They're a good listener, and I'm a good shouter.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+It's really awkward with the Fish though. I came home a few nights ago and the Fish was just there in my fridge.
+
+#### DAVID
+
+Yes. L--
+
+#### TREXEL
+
+Looking at me.
+
+#### DAVID
+
+Did you put the Fish there?
+
+#### TREXEL
+
+Well, I-- I don't remember putting the Fish there. Then again, I don't remember putting most things anywhere.
+
+#### DAVID
+
+I mean, the Fish is dead, right?
+
+#### TREXEL
+
+##### [chuckles softly]
+
+Well, I mean,  that's a very, very narrow view of life, David, but in a technical sense, yes. So, okay, I came home, and I found the Fish I left and it looked at me and, and it had eyes saying, "Oh, I see. You've been out with your new *fancy man, have you*?! *Have you*?!" And I shouted, "That's none of your business! I didn't ask you to live here!" And I slammed the fridge, and then I opened the fridge, and then I got a snack, and then I *slammed* the fridge again!
+
+#### DAVID
+
+M-kay.
+
+#### TREXEL
+
+It's very tense.
+
+#### DAVID
+
+The fact that your meaningful relationships are mainly with inanimate objects is not saying much for me.
+
+#### TREXEL
+
+I mean, what if I want the Broom to move in? You know?
+
+#### DAVID
+
+##### [stammers]
+
+Well, you'd--  you bring it in.
+
+#### TREXEL
+
+Well, yeah, but then the Fish is gonna be there. Looking at us.
+
+#### DAVID
+
+Throw it out.
+
+#### TREXEL
+
+While we're tryin-- Throw out a person?? David, I know that you've become more practical over time, but this--
+
+#### DAVID
+
+No, you-- you are so willing to throw *me* out and yet you will not throw out a fish!
+
+#### TREXEL
+
+Because the Fish never did anything to hurt me. I'm responsible for the breakdown of that relationship. The Fish was a saint!
+
+#### IMOGEN
+
+##### [beep]
+
+Your moral compass is baffling. Security unsure how to feel.
+
+#### DAVID
+
+Right. Sorry I'm not a saint!
+
+#### TREXEL
+
+Look, just because I've come under the thrall of a hot broom doesn't mean that I have to consider you any more of a person. Quid pro no.
+
+#### DAVID
+
+No... indeed.
+
+#### TREXEL
+
+But anyway, the point is that won't work because we can't find the Security office because I don't know where I am right now.
+
+#### DAVID
+
+No, that was *my* point. Don't say it like it was *your* point!
+
+#### TREXEL
+
+Look, we've discussed my point and we've decided it, it can't work. So we need, we need to find alternatives. Now, the way that Security on this station works is a little mysterious. As you may have noticed, lot of alerts, not a lot of stuff.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Thoughts?
+
+#### DAVID
+
+What, just in general on that?
+
+#### TREXEL
+
+Well, I've never-- I've never analysed it beyond exactly what I've said there.
+
+#### DAVID
+
+Well, I mean, the only real repercussions we've seen are Hartro trying to kill us--
+
+#### TREXEL
+
+That was bad.
+
+#### DAVID
+
+--us, uh, not submitting a brief, which was not a security alert and did get me taken to court--
+
+#### TREXEL
+
+Hmm.
+
+#### DAVID
+
+--and the gun walls.
+
+#### TREXEL
+
+The gun walls do a lot of the heavy lifting.
+
+#### DAVID
+
+Yeah. So, I guess Security are just sort of backup for the gun walls?
+
+#### TREXEL
+
+I could only assume.
+
+#### DAVID
+
+And I can't really think of a problem that a gun wall won't solve.
+
+#### TREXEL
+
+So, we just get the gun wall to shoot out the door.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Is the door gun-proof? Would you have a gun-proof door in a station mainly policed by guns?
+
+#### DAVID
+
+Uhhhhhh...
+
+#### TREXEL
+
+These are questions we can't answer.
+
+#### DAVID
+
+Okay. So-- No-- wha-- Okay, so hang on a minute. But who controls the gun walls? It's IMOGEN, right?
+
+#### TREXEL
+
+True.
+
+#### DAVID
+
+So, and security alerts aren't working nor are vent messages. I'm assuming because you're not there to pick them up.
+
+#### TREXEL
+
+I'm the vent messenger.
+
+#### DAVID
+
+Are you?!
+
+#### TREXEL
+
+Hmm?
+
+#### DAVID
+
+Are you-- you're the vent messenger?
+
+#### TREXEL
+
+I sort of take-- I take pieces of paper and move them around, if that means--
+
+#### DAVID
+
+Do-- do you have a second job?
+
+#### TREXEL
+
+I have a second hat, if that helps.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL [pulls out hat]
+
+It's got wings on it.
+
+#### DAVID
+
+Right. Wait, where's your first hat? You're not wearing a hat!
+
+#### TREXEL
+
+You know the wig? Technically a hat.
+
+#### DAVID
+
+Right. I-I did wonder why your hair just kept changing colour all the time.
+
+#### TREXEL
+
+Got lots of hats--
+
+#### DAVID
+
+Mm.
+
+#### TREXEL
+
+--of this type.
+
+#### DAVID
+
+Sure.
+
+#### TREXEL
+
+But two sets of types of hats.
+
+#### DAVID
+
+Could you just maybe pop off the wig for a moment?
+
+#### TREXEL
+
+No.
+
+#### DAVID
+
+I'm intrigued.
+
+#### TREXEL
+
+No, I don't want to.
+
+#### DAVID
+
+No, aw, go-- go on.
+
+#### TREXEL
+
+No, it's very stuck on.
+
+#### DAVID
+
+No, well-- Okay. Well, I-I'll help. Yeah, no.
+
+#### TREXEL
+
+##### [stammers]
+
+No, no. Get--
+
+#### DAVID
+
+I'm gonna help.
+
+#### TREXEL
+
+David! David!
+
+#### DAVID
+
+##### [struggles to get Trexel's wig off, Trexel slaps him away]
+
+I'm gonna help you.
+
+#### TREXEL
+
+##### [both struggle, slap at each other]
+
+David, I--  IMOGEN, gun wall him! Gun wall him!
+
+#### IMOGEN
+
+##### [beep]
+
+You have used up your allowance for this quarter.
+
+##### [wig rips off]
+
+#### DAVID
+
+##### [Trexel puts wig back on]
+
+Ah! Oh! Oh, put it back on! Oh Board, that's *awful!*  You don't clean under there, do you?
+
+#### TREXEL
+
+Clean?
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Under a hat? What am I?
+
+#### DAVID
+
+...Sensible?
+
+#### TREXEL
+
+Nope.
+
+#### DAVID
+
+Yep, that makes sense. Okay. Right, so... terrifying scalps aside, um, but-- so none of that is working, right? But we can get the attention of IMOGEN by saying something... not gonna say anything even implying it, but then the gun walls pop out [__TREXEL:__ Yes.] and IMOGEN is paying attention. [__TREXEL:__ Yes.] And if IMOGEN is paying attention, [__TREXEL:__ Yes.] this person, Drydon Quigley, can ask to be let out.
+
+#### TREXEL
+
+Now, do you think attention and caring are the same things?
+
+#### DAVID
+
+No. But... it's better than not attention at all.
+
+#### IMOGEN [beep]
+
+Emotional starvation detected. Security alerted.
+
+#### DAVID
+
+Even--
+
+#### TREXEL
+
+Is it though? Is it? Think about that. [__DAVID:__ Hmm.] Think of all the attention you've received in your life, David, from--oh, mostly me I suppose.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Has, has it been better--
+
+#### DAVID
+
+##### [sarcastic]
+
+Has it been a net positive experience?
+
+#### TREXEL
+
+--than nothing? I'd say yes, but then again, I'm biased because I know how great I am.
+
+#### DAVID
+
+Hmm.
+
+#### TREXEL
+
+##### [chuckles]
+
+David, I think this whole line of reasoning is flawed. You're relying on IMOGEN to do what you want. You're relying on a gun wall to shoot at the thing and not through a human being person. It's-- there's so many flaws, there's so many things. I think, David, I think the key thing is [__DAVID:__ Yeah?] most problems [__DAVID:__ Yep.] solve themselves. You've been sealed in a room, eventually the oxygen will run out. There's no one sealed in that room. Oh sure, there's a lump of meat that probably *would have* wanted to be let out at some point but  guess what? Too late.
+
+#### DAVID
+
+What if I am the ex-person? This problem isn't really solved for me. Sure, I don't care anymore.
+
+#### TREXEL
+
+Hmm. Yes, and that's the ultimate solution. Not caring anymore because you've died. Just bottle things up! Any issue you have, just bottle it up until you've died and then c'est la vie.
+
+#### DAVID
+
+No, that doesn't work. Say you're taking a test, right?
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+And then you fail that te--
+
+#### TREXEL
+
+I've died, I don't care.
+
+#### DAVID
+
+Okay, no. But then you failed that test--
+
+#### TREXEL
+
+Oh no, I've died of failure.
+
+#### DAVID
+
+No, but-- Okay. Uh, you failed the test and-- [__TREXEL:__ Okay.] so the, the doing the test is no longer a problem, right?
+
+#### TREXEL
+
+Yes. Yes.
+
+#### DAVID
+
+However, you have failed the test.
+
+#### TREXEL
+
+But you're also dead.
+
+#### DAVID
+
+N-no. Not in this--
+
+#### TREXEL
+
+Have I mixed this metaphor?
+
+#### DAVID
+
+I-- mm...
+
+#### TREXEL
+
+##### [opens bottle, pops cork off]
+
+Oh, a mixer. Lovely.
+
+#### DAVID
+
+Wait, where did you get that from?
+
+#### TREXEL
+
+Mmm...
+
+#### DAVID
+
+Hang on a minute...
+
+#### TREXEL
+
+##### [puts lid back on]
+
+I just keep flasks on me.
+
+#### DAVID
+
+Where's the slurry? Where's the pod??
+
+#### IMOGEN
+
+##### [beep]
+
+Nutrients will be mixed in with your air supply. And you can sleep on the floor.
+
+#### TREXEL
+
+Oh, David, I think--
+
+#### DAVID
+
+##### [panicking]
+
+I don't have a pod anymore!
+
+#### TREXEL
+
+I think all your mod-cons have mod-gone.
+
+#### DAVID
+
+##### [sighs]
+
+Mmmmmm.... pod-cons.
+
+#### TREXEL
+
+Don't worry, David. Don't worry. I've got a solution.
+
+#### DAVID
+
+Ha, no, it isn't-- the later drawer is gone as well, so you'll never get those things back!
+
+#### TREXEL
+
+##### [gasps]
+
+I wanted those things for later!
+
+#### DAVID
+
+Well--
+
+#### TREXEL
+
+##### [sobs]
+
+All my ideas, [__DAVID:__ I guess it's--] my inventions, my concepts all lost to the mists of time!
+
+#### DAVID
+
+Yep.
+
+#### TREXEL
+
+*Board damn you!!*
+
+#### DAVID
+
+##### [Trexel sobs continue]
+
+Oopsie-daisy! It's a never drawer.  What a shame. Those things will--
+
+#### TREXEL
+
+##### [throwing a fit]
+
+I don't like the never drawer!
+
+#### DAVID
+
+Yeah, well, the never drawer doesn't like you either and the never drawer has left!
+
+#### TREXEL
+
+Well, I've got new things. Um, um, um, what about... I t-talk about inventing a new kind of emergency service where I just come into your house at night and yell, "Wake up!"?
+
+#### DAVID
+
+Well, look. Look at that puddle over there.
+
+#### TREXEL
+
+What?
+
+#### DAVID
+
+##### [splash]
+
+Yeah. That's the later puddle. That's going in the later puddle! Splish!
+
+#### TREXEL
+
+##### [whines]
+
+It'll get soggy!
+
+#### DAVID
+
+Yep.
+
+#### TREXEL
+
+##### [sobs]
+
+You've ruined my concept with sog.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Now when I wring it out and try and clean a window it'll come off in pieces! And I'll be in grayscale and I'll go, "Oh! If only there was a better way."
+
+#### DAVID
+
+Well there isn't, and now it's in that puddle.
+
+#### TREXEL
+
+Well, fine smart guy. If it's not death that works for you...
+
+#### DAVID
+
+Well... maybe you've just got to tube your way out of there, right?
+
+#### TREXEL
+
+Ooh, yes! Every room has tubes!
+
+#### DAVID
+
+'Cause we get-- we get tubed-- Well, hang on a minute. So, we've been tubed from place to place.
+
+#### TREXEL
+
+We sure have.
+
+#### DAVID
+
+But do people normally--
+
+#### TREXEL
+
+And I feel like it's brought us closer together in that we were compacted close to each other in a tube.
+
+#### DAVID
+
+Yeah, physically, yes. Emotionally, I'm still very distant from you. But-- no, what I'm saying is we've been tubed everywhere [__TREXEL:__ Hmm.] but then when I was going to court, we went through the terrible long room. Right?
+
+#### TREXEL
+
+The hallway.
+
+#### DAVID
+
+We walked down the terrible long room. [__TREXEL:__ Yes.] The, the "hallway", and then we found another room.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+But we didn't traverse by tube.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+Wh-- why?
+
+#### TREXEL
+
+Well because the greatest punishment of all is personal perambulation. Why do you think we spent so much money installing all of these tubes? So we could walk to places, like animals?!
+
+#### IMOGEN
+
+##### [beep]
+
+I'm with him. Walking is for losers.
+
+#### DAVID
+
+Well, why don't you tube out of the room every time?
+
+#### TREXEL
+
+Because it's very, very difficult to get the tube lube off your clothes. So if it's a very short jaunt then you might have to suck it up. But the punishment walk, walking not because it's convenient but because *you don't deserve the tube!*
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+Also, I think the tube in that room was kind of broken.
+
+#### DAVID
+
+Right. Okay. Um... oh no, if the tube's broken in there the tube might be broken in the Security office.
+
+#### TREXEL
+
+But we don't know that!
+
+#### DAVID
+
+Well then--
+
+#### TREXEL
+
+We don't have to sort it out right now.
+
+#### DAVID
+
+Well, that's our job!
+
+#### TREXEL
+
+Just pop a suggest-- No no no! Pop a suggestion in. If it works, fine. Great. Hurray. If it doesn't, well you can come back 'round.
+
+#### DAVID
+
+##### [walls begin to groan]
+
+Oh, well-- I-I mean, I suppose so--  Woah! Wait, what is that?
+
+#### TREXEL
+
+Oh, that's a rumbling.
+
+#### DAVID
+
+##### [alarmed]
+
+Are the walls closing in?!
+
+#### TREXEL
+
+You know, it would appear that this room is also some sort of trash compactor.
+
+#### DAVID
+
+##### [stammers]
+
+Oh no! Um--
+
+#### TREXEL
+
+Uh, David. David, I think, I think we should put the brief in the--
+
+#### DAVID
+
+Yep, I'm gonna submit-- I'm gonna--
+
+#### TREXEL
+
+Not the brief. The, the complaint-- no, the suggestion.
+
+#### DAVID
+
+##### [crosstalk]
+
+I'm gonna submit!  Shut up! Shut up! Shut up! Shut up!
+
+#### TREXEL
+
+##### [crosstalk]
+
+Put it in! Put it in! Put it in! What is it?
+
+#### DAVID
+
+##### [quickly]
+
+##### [babbles]
+
+Yep. Okay. Right. Uh, just--  uh, say something [__TREXEL:__ Hmm.] rude about IMOGEN [__TREXEL:__ Sure.] and the Board [__TREXEL:__ Okay.] so she maybe shoots you with guns but is also paying attention so maybe she'll open the door for you. Going in.
+
+#### IMOGEN
+
+##### [chime, pneumatic tube hissing]
+
+Submitting!
+
+##### [alarm beep, walls retract]
+
+#### DAVID
+
+##### [relieved]
+
+Okay, there's--
+
+#### TREXEL
+
+Awww, there we go.
+
+#### DAVID
+
+Oh, it's opening up again.
+
+#### TREXEL
+
+Aww.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+That is a very intense way to be told "it's time to finish".
+
+#### IMOGEN
+
+##### [beep]
+
+There are more intense ways if you would like.
+
+#### DAVID
+
+Good... Board. Um, right, yes. Okay.
+
+#### TREXEL
+
+Well, there you go.
+
+#### DAVID
+
+So--
+
+#### TREXEL
+
+##### [spirals a little]
+
+That wasn't that hard. And as... Mez said maybe nobody will even look at it.  Maybe all of our efforts here today were for nothing!
+
+#### DAVID
+
+Well I mean, usually we didn't sell any planets or designed something that--
+
+#### TREXEL
+
+We came pretty close. I was pretty sure that that Mantis Shrimp was giving me buy signals with its mandibles.
+
+#### DAVID
+
+##### [skeptical]
+
+Mm-hmm. But you--
+
+#### TREXEL
+
+Anyway, I need to go and see if I can find where I live and where I drink and where this is. So, good day to you, clone.
+
+#### DAVID
+
+Good. I suppose I'll just stay in this wet trash hole now.
+
+#### TREXEL
+
+Well, I guess you will. And you think on your wet trash hole and the choices you made to get you here!
+
+#### DAVID
+
+##### [splashes in puddle]
+
+I'm gonna step in the later puddle.
+
+#### TREXEL
+
+Oh, what-- what, so you're for later.
+
+#### DAVID
+
+##### [splashes in puddle]
+
+Splish splash splosh.
+
+#### TREXEL
+
+##### [starts splashing in puddle]
+
+Oh, splish splash splosh? Well, maybe I'll get in the later puddle.  Yeah, "splish splash splosh."
+
+#### DAVID
+
+##### [struggles with Trexel]
+
+No, get out of-- Oh, ow!
+
+#### TREXEL
+
+##### [grunts]
+
+Uh!
+
+#### DAVID
+
+##### [splashes in puddle]
+
+Get off--  Get off! Fine.
+
+#### TREXEL
+
+##### [with contempt] [stammers]
+
+Good day to you.
+
+#### DAVID
+
+##### [with contempt]
+
+And-- and good day to you!
+
+#### TREXEL
+
+Oh, I said good day to you!
+
+#### DAVID
+
+And I said good day more!
+
+#### TREXEL
+
+Well, thank you!
+
+#### DAVID
+
+Uh-- good day infinity! Now get out of my trash hole!
+
+#### TREXEL
+
+##### [stammers]
+
+Trash hole for you!
+
+##### [door swooshes shut]
+
+##### [show theme starts]
+
+#### TIM
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Katie Seaton with executive producer Alexander J Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, Trexel Geistman was played by Tim Meredith, Mez Heckra was played by Mez Meredith. This episode was edited by Elizabeth Moffat, Maddy Searle, and Alexander J Newall, with music by Samuel DF Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord server, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook or email us via mail@rustyquill.com. May the Board preserve and keep you.

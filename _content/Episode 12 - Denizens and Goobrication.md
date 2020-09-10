@@ -1,0 +1,1461 @@
+---
+layout: post
+title: DENIZENS AND GOOBRICATION
+date: 
+categories: episode
+tags: 
+episode_number: '12'
+
+---
+
+# __EPISODE 12 - DENIZENS AND GOOBRICATION__
+
+## Transcribed 4/24/19 via stellarscripts on tumblr
+
+#### ALEX
+
+Hi everyone. Alex here. I'd just like to take a moment to thank some of our patrons. M. Waters, A Dog With Human Hands, Calvin Zeek, ., Andrew Lehmann, Scott LaTour, Merlene Martigue, Fizzer, Teresa Walstrum, Daria Kozbenko. Thank you all. We really appreciate your support. If you'd like to join them, go to www.patreon.com/rustyquill and take a look at our rewards.
+
+#### TREXEL
+
+Special thanks to Paul Gregory for today's submission. May your homeworld remain intact for longer than the galactic average.
+
+##### [show theme]
+
+#### IMOGEN
+
+Rusty Quill presents: Stellar Firma.
+
+##### [theme continues]
+
+#### DAVID [sighs, muttering to himself]
+
+##### [louder sigh]
+
+##### [footsteps approach]
+
+Is he up there? Let's-- it--  Trexel? Are you in the vent again? Trexel, please come out. Look, if you've got stuck, tap once--
+
+##### [door swooshes open]
+
+#### TREXEL
+
+Ahhhhh, David!
+
+#### DAVID [startled]
+
+Ah! Ah!
+
+#### IMOGEN [beep]
+
+##### [bwoop of lights turning on]
+
+Access granted
+
+#### TREXEL
+
+David, David, David, how are you?
+
+#### DAVID
+
+Uh, yes. Thank you, Trexel.
+
+#### TREXEL
+
+Why are you standing on a chair looking into a vent, David?
+
+#### DAVID
+
+Well I thought you might've-- you did leave by the vent, so I thought maybe you--
+
+#### TREXEL
+
+Did I, David?
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Did I leave by a vent, [__DAVID:__ Yes.] or was that perhaps a clever ruse and I actually left by a door?
+
+#### DAVID
+
+No, you definitely left by the vent.
+
+#### TREXEL
+
+No, you are right, David. I have been crawling in the vents again. But that chapter of my life is over. [__DAVID:__ Ah.] You know, it was a number of hours after I left last night, and I was still crawling around, and I think I might've got a little smidgen of radiation poisoning crawling near a reactor somewhere. But I'm fine now. And, and when I came out and, you know, I was having a hot, radiation-removing shower in my quarters and I--
+
+#### DAVID
+
+You-- you are looking quite bleached.
+
+#### TREXEL
+
+##### [sighs]
+
+I just thought to myself,  "Are vents really for you anymore, Trexel? You're not a young man. You know, you've got gravitas. You've got-- you've got pull around you, you've got sway. Sure, they do that thing where they, you know, laugh and walk away and, you know, whenever I visit The Board they always make me, you know, wait for hours and hours in an antechamber and then pretend that they didn't know I was there and then, and then close. But I-- I have people to impress and I can't be scrambling around in vents if I'm going to be a, if I'm going to be doing that, am I?"
+
+#### DAVID
+
+Hm? No, no, not at all.
+
+#### TREXEL
+
+No, so I walked here, *tall*, wearing my best trousers.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Look at them.
+
+#### DAVID
+
+Yes. They're very-- very nice. Yes. Plaid.
+
+#### TREXEL
+
+See? Plaid.
+
+#### DAVID
+
+And s-- Is that... eight pockets?
+
+#### TREXEL
+
+Oh, you can't have too many pockets, David. Give me one good reason why more pockets is worse than fewer pockets. One reason.
+
+#### DAVID
+
+Pocket vermin.
+
+#### TREXEL
+
+Pocket vermin. David, that's just a friend you haven't met yet.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL [singing]
+
+♪ Little friend in your pocket. Ooh yeah. Ooh yeah. Little friend, don't you stop it. Oh no. Oh no. Your li-- ♫
+
+#### DAVID
+
+##### [interrupting]
+
+Oh, look! Here comes the next brief!
+
+#### TREXEL
+
+Oh, okay.
+
+#### IMOGEN [beep]
+
+Initiating.
+
+#### DAVID
+
+Right. This one is from... Bathin, the Great Duke of Galactonium.
+
+#### TREXEL
+
+Bathin?! Of Galactonium, well...
+
+#### DAVID
+
+Uh, yeah. Yes. Uh, they need a place to keep their precious stones. Um, that's what they want the planet for. And the one design feature they *must* have is that denizens can only move by transporter.
+
+#### TREXEL
+
+Old Bathin. You know, I went to school with him?
+
+#### DAVID
+
+Oh.
+
+#### TREXEL
+
+##### [laughing]
+
+Yes, yes. It's a human, old Bathin. Yes, we were... we were friends at school. Well, I say friends. He held me upside-down into an airlock *until I went blue*! But then obviously he, uh... his father is the Duke of Galactonium, so he went off and-- off and did that while I, uh, got a job at the old Firm.
+
+#### DAVID
+
+Well--
+
+#### TREXEL
+
+The old Stellar Firm.
+
+#### DAVID
+
+I mean--
+
+#### TREXEL [chuckles]
+
+The old Stellar Firma Ltd. is what I'm saying. So yes-- wh-- I-- I-- I know him, ah, pretty well. Pretty well.
+
+#### DAVID
+
+Okay--
+
+#### TREXEL
+
+He's done very well for himself!
+
+#### DAVID
+
+Well--
+
+#### TREXEL
+
+##### [slight laugh]
+
+Which of course I'm absolutely delighted by. Obviously only because his father was the *old* Duke of Galactonium. And obviously anybody can have a rich father--
+
+#### DAVID
+
+But-- I would--
+
+#### TREXEL
+
+But obviously I don't think my *mother* was the reason that, that I have a position here.
+
+#### DAVID
+
+I mean, it-- it--
+
+#### TREXEL
+
+But he was a real... a real ding-dong about it, you know, David?
+
+#### DAVID
+
+It does say--
+
+#### TREXEL
+
+You know when someone's like... just really makes a *thing* about it?
+
+#### DAVID
+
+So-- so is his dad just the Duke of Galactonium?
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+Well, he's the *Great* Duke of Galactonium. So...
+
+#### TREXEL
+
+Oh, it-- it escalates.
+
+#### DAVID
+
+Oh!
+
+#### TREXEL
+
+That's the whole-- Galactonium-- Do you know about Galactonium?
+
+#### DAVID
+
+No.
+
+#### TREXEL
+
+##### [slightly under his breath]
+
+##### [normal voice again]
+
+Well Galactonium, it is  a little bit of a sore subject around here. It's a *human* colony.
+
+#### DAVID
+
+Oh, right.
+
+#### TREXEL [carefully choosing his words]
+
+They... disagree... with how... Stellar Firma... exists. You know, you know? Obviously, our history-- You, you've been in IMOGEN, you understand that obviously when we escaped the, uh, the Great Desolation that destroyed the Earth--we did that, by the way--but once we escaped that thing that we did. And then we discovered that maybe there was a business for our, for our terraforming technology. And so Stellar Firma was born. They did the pivot, the Great Pivot, you remember? And then some people were like, "Hey! I don't want to be a citizen-employee that's indebted to a faceless Board for all eternity!" for some reason. And they just left. They took some shuttles and left. And--
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+--that was, that was hundreds of years ago.
+
+#### DAVID
+
+And how do-- So, could you tell me a bit more about Galactonium? 'Cause it, it sounds so *awful* that I just wanna be absolutely sure that I never want to go.
+
+#### IMOGEN [beep]
+
+##### [recorded]
+
+Defectors to *"valued customer"* Galactonium will be eliminated.
+
+#### TREXEL
+
+##### [chuckles]
+
+##### [chuckles]
+
+Oh, yes. Of-- of course. So they found an uninhabited planet. [__DAVID:__ Mm-hmm.] And they, they had stolen some terraforming technology and  they turned it into a sort of--what would you call it--a paradise. A paradise. Obviously they haven't got the tech we have here, but, you know, they used what they had, and they made a verdant wonderland of earthly delights, and they've lived there ever since. And, you know, relations have been strained at times but we've come to a sort of a détente. You know, they are now a rich trading post. We are obviously still a *massively* powerful corporation. Every now and again someonechucks a photon beam where it shouldn't go. But mostly, you know, we get on. And the Grand Duke, obviously, he's a relatively important cast member. But, uh, as I've said... real ding-dong at school.
+
+#### DAVID
+
+*Great*. GreatDuke.
+
+#### TREXEL
+
+What'd I call him?
+
+#### DAVID
+
+*Grand* Duke. You should probably...
+
+#### TREXEL
+
+Oh, well, the Great Duke.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Oh, the Grand Duke.
+
+#### DAVID
+
+I mean it--
+
+#### TREXEL
+
+Oh, wow, a Duke!
+
+#### DAVID
+
+It is his--
+
+#### TREXEL
+
+Big Papa Duke! Swingin' around his scepter!
+
+#### DAVID
+
+W-- no, no, it's the *Great*... the *Great* Duke.
+
+#### TREXEL
+
+So, yes, the Great Duke is somebody that--
+
+#### DAVID
+
+Of Galactonium.
+
+#### TREXEL
+
+Of Galactonium. That we, uh--
+
+#### DAVID
+
+Bathin.
+
+#### TREXEL
+
+Bathin--
+
+__TREXEL and DAVID: [simultaneously]__ The Great Duke of Galactonium.
+
+#### TREXEL
+
+Yes, yes, yes. Thank you, David. Thank you, David. So yes. Obviously, you want to do a fantastic job.
+
+#### DAVID
+
+Well, yes. Because--
+
+#### TREXEL [annoyed]
+
+Heaven prevent his Dukeship should have a substandard planet.
+
+#### IMOGEN [beep]
+
+Stellar Firma Ltd. is pleased to remind you that employee enthusiasm is mandatory.
+
+#### DAVID
+
+##### [placatingly, pitch going up, trying to get Trexel on board]
+
+Uh, but-- and, heaven forfend your career record would have a substandard planet in it as well! Sooooo we wanna make a good planet?
+
+#### TREXEL [grumbling at first, pitch rising to match David's]
+
+Hmm, *okay!* I'm ready to go!
+
+#### DAVID
+
+Alright! So, he needs somewhere to keep all of his precious stones. And from what you've--
+
+#### TREXEL [interrupting]
+
+"Oh! I've got so many precious stones! Look at me! My-- my-- my *nine* pockets are overflowing with stones, so I need a whole *planet* for them!"
+
+#### DAVID [under his breath]
+
+He's probably got more than nine pockets, but--
+
+#### TREXEL
+
+You-- you-- I've got the most pockets, David.
+
+#### DAVID
+
+Well, you've got more pockets than me, Trexel! So--
+
+#### TREXEL
+
+Yes, you've got no pockets, have you, David?
+
+#### DAVID
+
+No, this one is--
+
+#### TREXEL
+
+You've got a featureless boiler suit.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Old no-pockets David over there.
+
+#### DAVID
+
+Actually, it's strangely slick.
+
+#### TREXEL
+
+What?
+
+#### DAVID
+
+The boiler suit. It's got a hydrophobic-- I keep sliding off of things.
+
+#### TREXEL
+
+Oh, yes, well, we wouldn't want you to get damp. What if you got moldy?
+
+#### DAVID
+
+Uh, wh--
+
+#### TREXEL
+
+Then we'd have to clean you!
+
+#### DAVID
+
+W--
+
+#### TREXEL
+
+What a mess that would be!
+
+#### DAVID
+
+Well, I-- I have had an itch for the last two weeks--
+
+#### TREXEL
+
+Oh you'll get massively dry skin, David. Oh my god! Your skin probably does need some moisture. But your itchy skin is less of a problem than you being a filthy, hot mess!
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+Anyway, clothing choices aside, he wants a planet to keep his precious stones on.
+
+#### DAVID
+
+Yes, lots of stones. Obviously enough stones to need a planet.
+
+#### TREXEL
+
+Yes, sure.
+
+#### DAVID
+
+And has to have one that denizens of the planet-- so, apparently-- or, you know, I don't know if, if he wants it to be a, a habit-- habitable planet [__TREXEL:__ Hm.] that people go to? Or, uh, maybe somewhere that they go to see his stones? Or that he needs a large staff to look after all of his stones because there are just so, so many stones. As the Great Duke of Galactonium, he's very rich and powerful, and has lots of stones. As you said, it was... a big trading post full of precious, nice things [__TREXEL:__ Mm-hmm.] that *he* has.
+
+#### TREXEL
+
+Mm-hmm. Mm-hmm. David, do you want to, [__DAVID:__ Maybe... all...] do you want to continue to talk about how fantastically rich and wonderful he is? And I--
+
+#### DAVID
+
+Well, well I'm just trying to get into the head of the, the *Great* Duke of Galactonium.
+
+#### TREXEL
+
+Ohhh, you're really getting on my wick aren't you, David?
+
+#### DAVID
+
+Oh. Yes. Precious stones-- I don't know what you mean.
+
+#### TREXEL
+
+Keep on just circling back round to how fantastic and--
+
+#### DAVID
+
+So he--
+
+#### TREXEL
+
+You know what, he was really bad. You know what he was really bad at?
+
+#### DAVID
+
+Being...
+
+#### TREXEL
+
+Drinking.
+
+#### DAVID
+
+Really bad at drinking.
+
+#### TREXEL
+
+One drink? Old, old tipsy boy, he'd become.
+
+#### DAVID
+
+Sounds quite cheap. Probably why he's got so much money now.
+
+#### TREXEL [whispering menacingly]
+
+##### [normal voice]
+
+Oh, you always know how to turn it around, don't you, David? A viper in my bosom. A knife in my heart!
+
+#### DAVID
+
+Very slick.
+
+#### TREXEL
+
+Do you want your knife back, David?
+
+#### DAVID
+
+Very slippery, itchy knife.
+
+#### IMOGEN [beep]
+
+Slippery snake knife detected. Security alerted.
+
+#### DAVID
+
+*So*, his stones?
+
+#### TREXEL
+
+Yes...
+
+#### DAVID
+
+Uhhh we need somewhere to keep them and the people who-- I-- I think, probably, given that it's a planet, probably all three. So you're going to need some staff to look after the stones.
+
+#### TREXEL
+
+Mm-hmm.
+
+#### DAVID
+
+You're going to need people who come and visit the stones.
+
+#### TREXEL
+
+Yes, yes.
+
+#### DAVID
+
+And people to look after the people who come and visit the stones they look after.
+
+#### TREXEL
+
+It's your standard denizen package, David. You don't need to over-complicate things. We know how staffed planets work!
+
+#### DAVID
+
+Ah.
+
+#### TREXEL
+
+If you've got a thing you need to keep, you need people to keep it, you need people to come see it because that's why you're keeping it, and you need people to keep the people keeping it and seeing it happy. That's your-- that's your standard three denizen package.
+
+#### DAVID
+
+Alright. Okay. So that's not so... difficult.
+
+#### TREXEL
+
+So, this is all about security, David. Because as much as I don't like the man, his key concern will be: Are. People. Touching. My. Precious. Stones. Because the one way to lose a stone is to have people touching it. Because touching leads to grabbing, and grabbing leads to taking, and taking leads to stealing, and stealing leads to prison. And then obviously your parents bail you out of prison and they say, "Trexel, *Trexel*, you sot! You've disappointed us, once again!" Hit me! Hit me!! *Hit me.*
+
+#### DAVID [sarcastically]
+
+What a coincidence that the man in that story was called Trexel as well.
+
+#### TREXEL
+
+Isn't it?
+
+#### DAVID
+
+Yes, very... strange. Um. So. Yes. So, security! So, security.
+
+#### TREXEL
+
+Yes! Yes, very important.
+
+#### DAVID
+
+So we need a large security force.
+
+#### TREXEL
+
+We need a vault! A vault planet.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+A vault planet. Now, a vault planet-- One thing about a vault planet is it doesn't need a lot of other things that a regular planet needs. An atmosphere: don't need it. You-- It's already on the inside.
+
+#### DAVID
+
+Yes. But those-- The vault needs denizens.
+
+#### TREXEL
+
+I've got-- You've misunderstood me, David. You understand what an atmosphere is? What's an atmosphere, David?
+
+#### DAVID
+
+It's, um, when you go to a party, and you like--
+
+#### TREXEL
+
+David, I'm going to stop you right there, David.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+In terms of a *planet*, what is an atmosphere?
+
+#### DAVID
+
+So it's when you go to a *party* planet, and when you land you're like, "Ah! Help! There's no oxygen here! And I'm dying because of the hot, hot sun!"
+
+#### TREXEL
+
+Exactly. Okay, I-- I stopped you too soon, David. It-- w-- you are is absolutely correct. That is what an atmosphere-- Now, on a regular planet, that atmosphere? It's outside. It's on the surface. But if you're in an enclosed space, that's not an atmosphere, David, that's just what's inside. And you don't need things like, you know, gravity to hold it in, or all this other complicated stuff. You just need a *big steel box*. And inside that box? Sure, we might have trapped some oxygen. And yes, there might be air filters, but we just don't have to worry about all the general-- You know, the thing about-- the thing about atmospheres is so much of it just flaps about, you know, on the surface of a planet, being exposed to space, getting hot, getting cold, all these complicated things. In a vault planet? You just lock it all in!
+
+#### DAVID
+
+Mm.
+
+#### TREXEL
+
+Trap the air! Three strikes and you're in!
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Get in there!
+
+#### DAVID
+
+Alright. I'm... getting inside.
+
+#### TREXEL
+
+Okay, so we're going to have a-- a-- a vault planet.
+
+#### DAVID
+
+Yep.
+
+#### TREXEL
+
+Doesn't even need to be circular, David.
+
+#### DAVID
+
+Sure.
+
+#### TREXEL
+
+Curves, curves are costly. Let's make it a big square. Big box.
+
+#### DAVID
+
+Okay. We haven't, we haven't done anything that's not a ball for awhile, so--
+
+#### TREXEL
+
+No! I think the last one was a pod? And it was sort of pod-shaped, rather than ball-shaped.
+
+#### DAVID
+
+Yeah, we'll do a big, big cube.
+
+#### TREXEL
+
+So it's gonna be a lovely, a lovely big box.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+So, inside that box, there needs to be a way of getting in and out that needs to be secure.
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+So how, how are we gonna do that?
+
+#### DAVID
+
+Umm--
+
+#### TREXEL
+
+My first thought, the entire side of the whole vault planet opens up. Hundreds if not thousands of square-kilometers of side just opening up onto the vast vacuum of space.
+
+#### DAVID
+
+How's that gonna work?
+
+#### TREXEL
+
+I-- I absolutely don't know, David. I imagine expensively, and I imagine a few denizens might die every single time it happens.
+
+#### DAVID
+
+So, actually, that's a good question. I did have that question. Is-- What is Galactonium's attitude to workers and their rights?
+
+#### TREXEL
+
+Oh! They. Do. Not. Care for them. As the name implies, it's a feudal system, David! You're not a Grand Duke or a Great Duke or a Big Daddy Duke Boy if you want people to have, you know, *rights* or *say* or anything like that. You know. Even here, even here: we call ourselves citizen-employees.
+
+#### DAVID
+
+Mm-hmm.
+
+#### TREXEL
+
+Certainly, at any moment, the Board could decide that, that we are... no longer needed and get rid of us. Or-- or IMOGEN could, could consider our waste output to food input balance off and-- and get rid of us that way. But at least there's a system in place.
+
+#### DAVID
+
+Right.
+
+#### TREXEL
+
+You know? There are *reasons* these things happen. Whereas in a feudal system, if the Duke looks at you and thinks, "Hmm, I don't like your face," you're gone!
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+And that's why they're called "denizens" and not "citizens".
+
+#### DAVID
+
+Right. Okay. Is that 'cause they live in dens?
+
+#### TREXEL
+
+They do all live in little dens.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Back-- back on their home planet, everybody's in a little den. Sometimes, you know, if you're really fancy? You've got a shack. If you're-- if you're *really* fancy, you might have a cave! If you're *incredibly* rich, that cave might have a door. But if you're a little bit richer? That cave doesn't have a door anymore, because it's *open-plan*, David. You see? You go backwards and forwards through the features. That-- that's-- that's how it works.
+
+#### DAVID
+
+Mmmmm--
+
+#### TREXEL "
+
+I've got an open-plan cave. It's got a kitchen-dining area that the rain gets into. Because I'm... middle class!"
+
+#### DAVID
+
+Right, well, I'm gonna take your word for that one. Okay, so, we'll have the whole range of dens for the denizens.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+And the side of the planet's gonna just open up.
+
+#### TREXEL
+
+Just open up.
+
+#### DAVID
+
+Just open up.
+
+#### TREXEL
+
+You know what? Let's put the dens on the inside of the door.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Then, if anything's gonna get destroyed and sucked off into the vacuum of space, it's gonna be denizens, the Duke won't mind.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+You know, it just-- it's just a-- it's a system that regulates itself.
+
+#### DAVID
+
+Okay. So we have this--
+
+#### TREXEL
+
+Big, steel cube.
+
+#### DAVID
+
+Yes, so a big, steel cube with one side of it opens up.
+
+#### TREXEL
+
+Ah, yes!
+
+#### DAVID
+
+A lot of dens everywhere.
+
+#### TREXEL
+
+##### [whispering]
+
+##### [normal voice]
+
+Oh! I've got a thought about the art of this! It--  You know what? Often we don't get to flex our design muscles, David.  You know, we're always thinking about features and structures [__DAVID:__ Yeaaaah...] and all of this kind of stuff? When really, we should be thinking about how it-- how it looks aesthetically.
+
+#### DAVID
+
+Yes... if we had more time.
+
+#### TREXEL
+
+*All* of the controls... are full-scale. Buttons... two *miles* across. You have to ram a spaceship into it to press a button, for example.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+And then you've gotta turn a big wheel. But that wheel is three *hundred* miles across. And you've gotta just-- you've gotta just get like six spaceships and you need to-- to put them all on each of the spokes and accelerate them and some of them slip off and smash and explode. You know, it's-- it's-- it's basically, you know, like a small safe you'd have, like, in a room?
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+It's that but huge!
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+Just enormous!
+
+#### DAVID
+
+With a whole population of denizens to operate it.
+
+#### TREXEL
+
+Just-- just all-- all on the inside of one door.
+
+#### DAVID
+
+Okay.
+
+#### TREXEL
+
+They maintain the mechanism, because--Remember this mechanism? It's gonna have like, like, uh, holes, that in a regular safe wouldn't be big enough for a piece of dust, but a *whole* denizen's gonna be able to walk through that. Sure, they might get crushed by some piece of moving equipment but they're a denizen! That's what they're for. Their blood will lubricate the mechanisms!
+
+#### DAVID
+
+Ooh. Okay. Well, f-- fine. Let's go with that.
+
+#### TREXEL
+
+When you crush a body and it lubricates a mechanism, could you call that *goobricating*? Because you become a sort of a goo. Like, I've smashed you into a lock, and now your-- your rendered flesh and blood, like, that goo? It's goobricated it!
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+We could patent that!
+
+#### DAVID
+
+We could.
+
+#### TREXEL
+
+And, and Hartro couldn't say we haven't explained it! Because that is fully fleshed out! You know what? That's what we-- That's the tagline. Goobricated corpses: a fully fleshed out product from Stellar Firma Ltd.
+
+#### DAVID
+
+Okay. Okay, yes, but we're not making goo--
+
+#### TREXEL
+
+##### [crosstalk]
+
+This is wonderful. Let us--  Go on IMOGEN and trademark goobrication.
+
+#### DAVID [crosstalk]
+
+No, no-- We're not making--
+
+#### IMOGEN [beep]
+
+Goobrication: patent-pending.
+
+#### DAVID
+
+##### [pauses to count]
+
+We've only done one side! What's happening on the f...  five other sides!
+
+#### TREXEL
+
+Well, they're just *plain*. The outsides are fine.
+
+#### DAVID
+
+Okay, so the--
+
+#### TREXEL
+
+It's the inside that's massively complicated that we need to get to.
+
+#### DAVID
+
+Right. So, so... what are we doing [with] the vault? The vault, right, what is the vault? You're opening up the side of the planet [__TREXEL:__ Yes.] and then what? Is it just another, smaller safe?
+
+#### TREXEL
+
+No, no, it's not, it's not, it's not-- That would be so unoriginal. What? Just safe upon safe upon safe with fewer and fewer denizens living in each one. [__DAVID:__ Yes.] Maybe choosing *smaller* denizens-- Oh my god! That would be amazing! So let's just within that safe, there's another safe.
+
+#### DAVID
+
+Nested safes.
+
+#### TREXEL
+
+##### [slightly manically]
+
+And just average height of the denizen is just a little bit lower, [__DAVID:__ Yeah.] and they're living in smaller houses. And you open that one, smash a couple of denizens up to goobricate the mechanism. Open that one up, [__DAVID:__ Okay.] these ones are really uncommonly small! And you open up that one, and you keep on going, until it's the *children*. The children are the denizens! And the shortest children are the denizens at that! And they're going, "Wah! Wah! Would you like to get at the stones?" And you're like,  "*Yes*! Gimme the stones!"
+
+#### IMOGEN [beep]
+
+Child labor detected. Consultants encouraged.
+
+#### DAVID
+
+Okay, so, good. So basically, we have about...  a hundred and forty nested safes [__TREXEL:__ Thereabouts.] operated by smaller and smaller people--
+
+#### TREXEL
+
+And then eventually children.
+
+#### DAVID
+
+--and then eventually children. And then there's basically just a big room full of stones.
+
+#### TREXEL
+
+Yeah.
+
+#### DAVID
+
+Okay. Fine! Good. Now, we need to get to the other part of the brief which is that all of these denizens have to travel by *transporter*.
+
+#### TREXEL [whispering]
+
+Right.
+
+#### DAVID
+
+And I don't know what, um, that means by "transporter". Is that a transport system? Is it a teleporter? What do the Galactoniums like? And bearing in mind, we have one minute and ten seconds to do this bit. What was--
+
+#### TREXEL
+
+Hmm. What would a stuck up, snooty idiot think was a good idea?
+
+#### DAVID
+
+What was Bathin's favorite-- What did he come to school in?
+
+#### TREXEL
+
+What did he come to school *in*?
+
+#### DAVID
+
+Yes.
+
+#### TREXEL
+
+Sort of a chute.
+
+#### DAVID
+
+A chute?
+
+#### TREXEL
+
+Sort of like a-- like a smooth chute that would just sort of roll him along like a big, stupid egg.
+
+#### DAVID
+
+Okay. Right.
+
+#### TREXEL
+
+So when he thinks a transporter, he just thinks a series of chutes.
+
+#### DAVID
+
+Well, that's transport.
+
+#### TREXEL
+
+Yes, well, I suppose it's--
+
+#### DAVID
+
+So it's just loads of slides?
+
+#### TREXEL
+
+I feel like we've done chutes before though.
+
+#### DAVID
+
+We have, and--
+
+#### TREXEL
+
+And you know what?
+
+#### DAVID
+
+No--
+
+#### TREXEL
+
+I'm not gonna, I'm not gonna play to his game. You know, chutes are *stupid*, I think.
+
+#### DAVID
+
+No, no. But, Trexel, *yes*. Think about the beautiful irony of you're making a planet for Bathin and you're reusing old ideas and he doesn't even know!
+
+##### [the following is panicked, overlapped crosstalk between Trexel, David 7, and IMOGEN in the background]
+
+#### TREXEL
+
+Yes. Yes! Yes!
+
+#### DAVID
+
+So I'm gonna put slides.
+
+#### TREXEL
+
+They ride around on dogs! You've written that down?
+
+#### DAVID
+
+What? No!
+
+#### TREXEL
+
+They ride around on dogs!
+
+#### DAVID
+
+Slides-- That's not a transporter. What?!
+
+#### TREXEL
+
+They-- Dog-- Oh, right. Fine. They ride around on dogs, the dogs ride in chutes.
+
+#### DAVID
+
+Okay. Fine.
+
+#### TREXEL
+
+Is that a compromise?
+
+#### DAVID
+
+Yes. Dogs in slides.
+
+#### TREXEL
+
+Is that a compromise?
+
+#### DAVID
+
+Dogs in slides.
+
+#### IMOGEN
+
+##### [beep]
+
+Would you like to submit?
+
+#### TREXEL
+
+Each of the dogs has shaved into its fur "Bathin's an idiot."
+
+#### DAVID
+
+Okay, no, we have to-- I'll just--
+
+#### TREXEL
+
+"Bathin's an idiot!" Just shave the dog with that!
+
+#### DAVID
+
+No, I haven't written it down. No, no, no, no. It's gone. It's gone, it's gone, it's gone.
+
+#### IMOGEN [chime, pneumatic tube hissing]
+
+Submitting!
+
+##### [panicked crosstalk ceases]
+
+#### TREXEL
+
+Ah! I feel like that's teamwork.
+
+#### DAVID
+
+Phew!
+
+#### TREXEL
+
+Teamwork makes the dream work, David.
+
+#### DAVID
+
+Uh, that was a close one. And I feel like I wrote about three sentences.
+
+#### TREXEL
+
+Yeah, well, did you write down "You've shaved into the--" What did we shave into the dogs in the end?
+
+#### DAVID
+
+"Bathin's an idiot."
+
+#### TREXEL
+
+"Bathin's an idiot." And that's in the brief?
+
+#### DAVID
+
+No. No. There's dogs on slides.
+
+#### TREXEL
+
+You didn't write-- That was all I wanted in it, David!
+
+#### DAVID
+
+Well, I had to-- I had to--
+
+#### TREXEL
+
+If we didn't have anything else, I wanted a dog with "Bathin is an idiot" shaved into the side.
+
+#### DAVID
+
+Then why did you-- why did you say it two seconds after the deadline?!
+
+#### TREXEL
+
+Because I thought of it then!
+
+#### DAVID
+
+G-- Trexel! If you had-- Trexel--
+
+#### TREXEL
+
+When I say something after the deadline--
+
+#### DAVID
+
+No! Trexel!
+
+#### TREXEL
+
+--think of it *beforehand*.
+
+__DAVID and TREXEL: [indignant interrupting noises at each other]__
+
+#### DAVID
+
+*No!* You are *consistently* here *twenty minutes* before the deadline.
+
+#### TREXEL
+
+Yes.
+
+#### DAVID
+
+If you'd come even-- Think about it. If you'd come even a minute earlier, we'd have had dogs with "Bathin's an idiot" shaved into-- Think about the amount of things that *you* have *lost* from doing that. So think of how many things we could've shaved "Bathin's an idiot" into if you turned up when you were supposed to *eight hours ago*!
+
+#### IMOGEN [beep]
+
+Sass detected. Security alerted.
+
+#### TREXEL
+
+Are you... are you quite done? Your little temper tantrum over there, David?
+
+#### DAVID
+
+Well, I don't think that *echoing* what Hartro said...* to you*... is really a temper tantrum! I don't think that's a temper tantrum! I think that's just... honest and-- and-- and-- and forthright feedback!
+
+#### TREXEL
+
+Is this about your itchy skin?
+
+#### DAVID
+
+*No!*
+
+#### TREXEL
+
+Is it about yo-- Do you want some moisturiser, David?
+
+#### DAVID
+
+Yes!
+
+#### TREXEL
+
+I'll get you some moisturiser, David. Look, when you want some moisturiser, David, you don't need to make up the, a whole rigmarole--
+
+#### DAVID
+
+No, it wasn't--
+
+#### TREXEL
+
+--about me being late or on time--
+
+#### DAVID
+
+No, I wasn't making it--
+
+#### TREXEL
+
+--and that being a problem and us shaving things into dogs.
+
+#### DAVID
+
+No, it-- It is--
+
+#### TREXEL
+
+If what you're saying is, "Trexel, I've got an itchy back," then just say it, David.
+
+#### DAVID
+
+Okay, no no. Okay, I *do* have an itchy back--
+
+#### TREXEL
+
+Just say it.
+
+#### DAVID
+
+I do. I have an itchy back.But--
+
+#### TREXEL
+
+Oh, you've got an itchy back? *Thank you*, David.
+
+#### DAVID
+
+No no no no no. But-- but this isn't--
+
+#### TREXEL
+
+Thank you for admitting that, David.
+
+#### DAVID
+
+No. But it's not-- This isn't--
+
+#### TREXEL
+
+Thank you for coming with me and allowing me to *explore your body*.
+
+#### DAVID
+
+This isn't-- Trexel--
+
+#### TREXEL
+
+##### [David sighs]
+
+I'll get you moisturiser, David. I hear-- I read you loud and clear. What's-- I'm just tuning into, into, into Radio David 7. Tuning in there. And what I'm hearing is: I'm so itchy itchy.
+
+#### DAVID
+
+Turn up earlier. Turn up earlier.
+
+#### TREXEL
+
+I'm so itchy.
+
+#### DAVID
+
+Turn up earlier.
+
+#### TREXEL
+
+I'm so itchy.
+
+#### DAVID
+
+Turn up earlier.
+
+#### TREXEL
+
+Get me moisturiser.
+
+#### DAVID
+
+*Please*, turn up earlier.
+
+#### TREXEL
+
+I'm so itchy.
+
+#### DAVID
+
+Turn up earlier.
+
+#### TREXEL
+
+##### [David sighs]
+
+You've made your point, David.  You've made your point.Alright, I'll go get some moisturiser. And I will see you bright and early tomorrow evening. Alright, bye-bye!
+
+##### [door swooshes open]
+
+#### DAVID [muttering menacingly]
+
+I'll moisturise *you*, you great, big fff--
+
+#### IMOGEN [beep]
+
+Vulgarity detected. Releasing relaxation gas.
+
+##### [hissing of gas entering the room]
+
+##### [Stellar Firma Ltd. theme music plays]
+
+#### DAVID
+
+##### [David chokes slightly on his words]
+
+Wait, no! That's not fair-- Ughhh! Ohhh...
+
+##### [thumping of David 7's unconscious body hitting the floor]
+
+##### [Stellar Firma Ltd. theme music fades out]
+
+##### [show theme starts]
+
+#### IMOGEN
+
+Stellar Firma is a podcast distributed by Rusty Quill Ltd. and licenced under a Creative Commons Attribution Noncommercial Sharealike 4.0 International Licence. It was created by Tim Meredith and Ben Meredith, and produced by Lowri Ann Davies with executive producer Alexander J. Newall. In today's episode, I.M.O.G.E.N. was played by Imogen Harris, David 7 was played by Ben Meredith, and Trexel Geistman was played by Tim Meredith. The episode was edited by Edward von Aderkas and Alexander J. Newall, with music by Samuel DF Jones and artwork by Anika Khan. To subscribe, buy merchandise, or join our Discord, visit rustyquill.com. Rate and review us online, tweet us @TheRustyQuill, join our Reddit community on r/RustyQuill, visit us on Facebook, or email us via mail@rustyquill.com. May the Board preserve and keep you.
