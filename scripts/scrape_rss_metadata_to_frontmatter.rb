@@ -4,7 +4,7 @@ require 'fileutils'
 require 'yaml'
 
 @feed_url = "https://rss.acast.com/stellarfirma"
-@out_dir  = "_frontmatter"
+@out_dir  = "_raw_frontmatter"
 
 def get_rss_feed(url=@feed_url)
   @xml  = Faraday.get(url).body

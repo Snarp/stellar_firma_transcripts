@@ -1,7 +1,7 @@
 require 'yaml'
 
-@fm_dir         = '_frontmatter'
-@ep_dir         = '_content'
+@fm_dir         = '_raw_frontmatter'
+@ep_dir         = '_raw_content'
 @dir = @out_dir = '_posts'
 
 def try_combine_ep_posts(out_dir=@out_dir)
