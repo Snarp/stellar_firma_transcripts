@@ -1,0 +1,20 @@
+---
+layout: default
+---
+<div class="post">
+{% include post-header.html %}
+
+<div class="wrapper">
+	<article class="post-body" itemscope itemtype="http://schema.org/BlogPosting">
+		<div class="entry-content" itemprop="articleBody">
+			{{ content }}
+		</div>
+	</article>
+</div>
+
+<footer class="post-footer">
+	<div class="wrapper">
+		{% include post-nav.html %}
+	</div>
+</footer>
+</div><!-- /div.post -->

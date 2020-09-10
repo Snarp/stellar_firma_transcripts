@@ -1,0 +1,22 @@
+{%- if page.episode_number and page.episode_title -%}
+	{%- assign page_title = "SF" | append: page.episode_number | append: ' - ' | append: page.episode_title | append: ' • ' | append: site.title -%}
+{%- elsif page.title -%}
+	{%- assign page_title = page.title | append: ' • ' | append: site.title -%}
+{%- else -%}
+	{%- assign page_title = site.title -%}
+{%- endif -%}
+
+<head>
+	<meta charset="utf-8">
+	<meta http-equiv="X-UA-Compatible" content="IE=edge">
+	<meta name="viewport" content="width=device-width, initial-scale=1">
+	<meta name="description" content="{{ site.description | escape }}">
+	<meta property="og:title" content="{{ page_title | escape }}">
+
+	<title>{{ page_title | escape }}</title>
+
+	<link rel="icon" href="{{ site.baseurl }}/favicon.svg" type="image/svg+xml">
+	<link rel="stylesheet" href="{{ '/css/main.css' | prepend: site.baseurl }}">
+	<link rel="canonical" href="{{ page.url | replace: 'index.html','' | prepend: site.baseurl | prepend: site.url }}">
+	<link rel="alternate" type="application/rss+xml" title="{{ site.title }}" href="{{ '/feed.xml' | prepend: site.baseurl | prepend: site.url }}">
+</head>

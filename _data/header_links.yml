@@ -1,0 +1,33 @@
+---
+- name:      Special Episodes - Q&A, Contest Winners, Etc.
+  shortname: Specials
+  path:      specials.html
+  local:     true
+- name:      Unofficial Transcript Source Index
+  shortname: Sources
+  path:      sources.html
+  local:     true
+- name:      List of Incomplete Transcripts
+  shortname: Incomplete
+  path:      incomplete.html
+  local:     true
+- name:      Site News
+  shortname: News
+  path:      news.html
+  local:     true
+# - name:      Official Transcript Archive
+#   shortname: Official Transcripts
+#   path:      
+#   local:     false
+- name:      RSS Feed
+  shortname: RSS
+  path:      feed.xml
+  local:     true
+# - name:      Ebook Download
+#   shortname: Ebook
+#   path:      "assets/epub/ebook.epub"
+#   local:     true
+- name:      "Search (WARNING: Slow! Data-Intensive!)"
+  shortname: "Search (WARNING: Slow! Data-Intensive!)"
+  path:      search.html
+  local:     true
