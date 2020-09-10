@@ -38,20 +38,11 @@ def add_formats_to_episode(fname=episode_fnames[1])
   return ep
 end
 
-def assign_sources(fnames=episode_fnames)
-  fnames.map do |fname|
-    ep = Episode::from_file(fname)
-    ep.meta['sources']={'stellarscripts'=>'http://stellarscripts.tumblr.com/'}
-    ep.save
-    ep
-  end
-end
-
 
 
 # SCRAPING URLS
 
-def parse_table_rows(doc=doc(), out_fname=@out_fname)
+def scrape_source_index(doc=doc(), out_fname=@out_fname)
   @source_index = { problems: [] }
   doc.css('div.posts tr').map do |tr|
     links = tr.css('a')
